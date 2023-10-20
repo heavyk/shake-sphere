@@ -57,3 +57,7 @@ I know this effect as well, because I at certain times, do not see with only my 
 ### 2023-10-20 07:41 - hamlet is sad that he has to jerk off
 
 his letter to ophelia is hilarious.
+
+### 2023-10-20 07:48 - do I really want to believe my own reality?
+
+or, do I want to fight against it. I've manifested it, so it must make me or break me: to be, or not to be. to do, therefore, instead.
