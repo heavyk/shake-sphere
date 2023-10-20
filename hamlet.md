@@ -71,3 +71,7 @@ ophelia save me from having to jerk off. if only I could actually believe you wo
 ### 2023-10-20 08:44 - my mother moved on really quickly
 
 which means my father left litte *legacy (on her)*, which makes me heartbroken, because I liked my dad. he made me feel strong, and this new claudio guy makes me feel weak. waaaaaa I want my father!
+
+### 2023-10-20 08:56 - you (girl) can't play my pipe, like guildenstern can
+
+so I,m upset that you won't just give me what I want (enlightenment), and instead have to cause me my problems. just make my life easy like my mom, and just do it for me. don't appear and do the things that a good girl should do to me.
