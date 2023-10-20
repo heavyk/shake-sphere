@@ -60,4 +60,5 @@ his letter to ophelia is hilarious.
 
 ### 2023-10-20 07:48 - do I really want to believe my own reality?
 
-or, do I want to fight against it. I've manifested it, so it must make me or break me: to be, or not to be. to do, therefore, instead.
+or, do I want to fight against it. I've manifested it, so it must make me or break me: to be, or not to be. to do, therefore, instead. tragic believing one's own manifestation as reality. he chooses to fight it, and it kills him.
+    I face this sort of decision all the time, but I've become accustomed to it, as eventually what always ends up happening is, that if I keep them secret too long, not to many other contrary opinions go against them, and they manifest. the longest manifestation possible would be to make sure that all of my ideas are made known and as many false narratives are in order that it creates maximum resistance to them across time and space. eventually, I have to finally accept my reality, though. if I cannot, I manifest something that will ultimately destroy me., just like hamlet.
