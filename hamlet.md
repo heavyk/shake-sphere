@@ -12,3 +12,7 @@ wow that got dreary fast... (brb coffee 04:48)
 ### 2023-10-20 04:54 - but I was next
 
 hamlet is also really pissed off that this guy skipped queue and jumped into the throne before hamlet could. lol, he's so adult.
+
+### 2023-10-20 04:58 - I don't want a new dad
+
+hamlett's like this guy is already treating me like a kid: I shall stay with them and they become my new parents, and I liked my old dad (but he's dead! waaaaaa!)
