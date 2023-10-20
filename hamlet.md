@@ -53,3 +53,7 @@ I believe that they didn't have sound systems back then, so all of the actors we
 
 I know this effect as well, because I at certain times, do not see with only my physical eyes, and therefore can illuminate (or make darker) object, of both real and imaginary form. it's pretty cool, cause it makes reality really vibrant, but it also makes the dark look darker, too. because his emission is so strong, when it's unwanted, he really digs  the darkness.
     I used to do that as well, and that's precisely how my brain haemorrhage occured--, because I saw the world as really dark and not really all that impressive (the idea of girls seemed still then as a long shot, really far away.) I manifested all of the awful things I believed (or their symbolic equivalent) into reality. as a consequence of doing that, the surgery thereafter made it permanent. tragedy works.
+
+### 2023-10-20 07:41 - hamlet is sad that he has to jerk off
+
+his letter to ophelia is hilarious.
