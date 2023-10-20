@@ -75,3 +75,7 @@ which means my father left litte *legacy (on her)*, which makes me heartbroken, 
 ### 2023-10-20 08:56 - you (girl) can't play my pipe, like guildenstern can
 
 so I,m upset that you won't just give me what I want (enlightenment), and instead have to cause me my problems. just make my life easy like my mom, and just do it for me. don't appear and do the things that a good girl should do to me.
+
+### 2023-10-20 09:01 - guildenstern is upset that hamlet is denying him hamlet's griefs
+
+this is another popular thing, where if a hamlet/man has griefs with a woman/rosencrantz, then she (hecate) creates for him a guildenstern for him to relieve his griefs. this, is also another aspect of the tragedy, where hamlet isn't relieving his griefs, so instead he's manifesting his griefs into his symbolic mind'seye reality.
