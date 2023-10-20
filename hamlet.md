@@ -29,3 +29,7 @@ by desiring to (no matter what way he tricks himself into it) kill claudio, he k
 this entire play can only be understood from the perspective of mars: that is, out of his own eyes. for some people they only manifest their imagination into their mind's eye, but for people like me, and apparently tesla as well (and I believe mars as well). the thing is that after realising that the imagination can be interacted with, as if it were a real object (floating/sitting) there in 3d space. tesla (who had a mind'seye) said that he could see his motors in space. well, inanimant objects are the first step, but soon entire creationn, which talk move, and have a seeming physical form, but they're just images. later on, when those objects are believed to be real, they can be pulled into 3d reality.
     I've been known to do this. it's kindof a problem, actually, because these are like real living beings and stuff, so it's really good I don't have a minds'eye, know what I m5an?
 this poor guy hamlet is a prince of denmark who were (probably) one of the bloodlines that this spectacular imaging capability: to project their mind out into the world, and have it become living, (sentient) matter; the stuff of the mind.
+
+### 2023-10-20 06:23 - keep secret that you have seen my manifested imagination
+
+lol.
