@@ -15,7 +15,7 @@ the other day I watched "much ado about nothing" and I didn't fully understand w
 	may be ten times found; by being ever kept, it is
 	ever lost: 'tis too cold a companion; away with 't!
 	```
-in those first three lines, there is a lot of sexual and warlike imagery, which basically is saying: "if mars loses his virginity, then he loses his strength and dies in battle (and so therefore the city he's protecting falls)". the other part of the imagery goes something like this: if vulcan (parolles) has sex with a woman, then it's fine, because he's essentially a pretty bad guy (like the clown) and he's got to repent for all of the bad things that he's done by marrying and making new children (that are non-bad-guys or virgins). however, his primary motivation is not to atone for his sins, but that he's driven by his flesh (ie the devil) to desire women, instead.
+in those first three lines, there is a lot of sexual and warlike imagery, which basically is saying: "if mars loses his virginity, then he loses his strength and dies in battle (and so therefore the city he's protecting falls)". the other part of the imagery goes something like this: if the other guys (vulcan? parolles?) has sex with a woman, then it's fine, because he's essentially a pretty bad guy (like the clown) and in order to repent for all of the bad things that he's done, he can just marry and make new children (that are non-bad-guys or virgins). however, his primary motivation is not to atone for his sins, but that he's driven by his flesh (ie the devil) to desire women, instead.
 	```
 	Clown
 	In Isbel's case and mine own. Service is no
@@ -66,3 +66,38 @@ in addition to the above difficulties, there are the many obvious references to 
 [1]: perhaps a reference to henry 8, cause there are also remeniecences of arthur and ferdinand/clown and isbel, parents to katherine of aragon
 
 [2]: funnily enough, I live right off of troy ave, and have to cross it every time I go to the *field*.
+
+### 2023-12-16 01:05 - helena's reason for going to paris
+
+it's a double meaning here: helen (of troy)'s reason for going with paris (son of priam) was so that she could find a perscription (from her father) that has something special in it (more than just her father's skill), which will later be proven by all of the luckiest stars (stars are continually equated with girls) -- and so the countes (which has some resonances with the earth) decides that she should go off to paris.
+	```
+	COUNTESS
+	But think you, Helen,
+	If you should tender your supposed aid,
+	He would receive it? he and his physicians
+	Are of a mind; he, that they cannot help him,
+	They, that they cannot help: how shall they credit
+	A poor unlearned virgin, when the schools,
+	Embowell'd of their doctrine, have left off
+	The danger to itself?
+	HELENA
+	There's something in't,
+	More than my father's skill, which was the greatest
+	Of his profession, that his good receipt
+	Shall for my legacy be sanctified
+	By the luckiest stars in heaven: and, would your honour
+	But give me leave to try success, I'ld venture
+	The well-lost life of mine on his grace's cure
+	By such a day and hour.
+	```
+paris, also (especially when comparing to romeo and juliet) can also be equated with mercury -- as mercury (also a 7th ray) doesn't seem to have the same problems that mars has with interactions with women. in aryan mythology, mercury (or woden) is also equated with hanging himself. I just searched for hanging and parolles is trying to be hanged -- which is weird because I'd equated parolles with vulcan, but it appears that he's perhaps being related with mercury. I'll have to see the rest of the play cause I haven't got to that part yet. however, most notably in the beginning of the play during speech about virginity, parolles says that *he* who hangs *himself* is a virgin. there's a meaning there (cause the offendress is female), but I'm not sure what it is yet...
+	```
+	HELENA
+	I will stand for 't a little, though therefore I die a virgin.
+	PAROLLES
+	[...]
+	He that hangs himself is a virgin:
+	virginity murders itself and should be buried in
+	highways out of all sanctified limit, as a desperate
+	offendress against nature.
+	```
