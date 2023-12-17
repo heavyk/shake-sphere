@@ -26,3 +26,4 @@ you know, love is not without cOnditions. there are many things that have to be 
 ### 2023-12-17 10:25 - narration is good to have as an address, but not as a destination
 
 destination is never found, but it's always more of who I am.
+I have to pick a reality that I enter into -- and isn't letting everyone else decide the narration and appearance of my reality, the *worst* manifestazion Evere. I personally consider it the worst. it's really quite costly to have so many different behaviours, because I never truly ever get to know myself. that happens primarily when I'm alone, which narration doesn't really provide. the character may be alone, but there's always the reader, too. Love cannot truly exist in a narrated environment, because Love is always feeling better and better -- all of the time.
