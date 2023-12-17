@@ -8,4 +8,4 @@ I should turn this into a poem some day. I prolly wont: yknow, the easist way to
 
 ### 2023-12-17 08:16 - I beseech you sir
 
-to please contact a good friend of mine, a wonderful don joaquin ayuso. he will instruct you much :) fare thee well.
+place thee in cOntact with a good friend of mine: a wonderful don joaquin ayuso. he can instruct thee much. ask him what is a terrateniente. trust me. fare thee well.
