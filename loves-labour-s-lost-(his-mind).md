@@ -8,7 +8,7 @@ I should turn this into a poem some day. I prolly wont: yknow, the easist way to
 
 ### 2023-12-17 08:16 - I beseech you sir
 
-place thee into cOntact with a good friend of mine: a wonderful don joaquin ayuso del escorrial vicente. he can instruct. ask him what is a terrateniente: you are going to laugh; very well. 
+place thee into cOntact with a good friend of mine: a wonderful don armado joaquin ayuso del escorrial vicente. he can instruct. ask him what is a terrateniente: you are going to laugh; very well. 
 
 disaster! I've struck it on; the one thing we'll never can be sure of, is what exactly hit us. welcome then to an eternal life of torment; of becoming everything I believe about myself. of becoming all that I AM. I am trying (and generally failing) at being exceptionally glib about it. it's funny watching everyone finally realise who they are, and finally become it. I find it absolutely hilarious, but you know, just like everyone else, I get all wrapped up in emotions, duty, polity, and general behaviour rules that say I souldnt find life surreal and hilarious. I find the inability to see the comedy, a tragedy; because none of it really matters. everyone say: I AM that I AM; everything I think I am, I become. that's eternity baby, without the deaths part; unless I [AM] dead.
 
