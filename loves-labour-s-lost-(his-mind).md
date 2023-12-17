@@ -22,3 +22,7 @@ I'm really without capability, considering the events that have passed. when I r
 so what I think is important is that I make it over to where I'm reflecting those I'm narrated to be around; which is fine,butt I don't want to make jokes like that. I'm still quite reflective of others, and it's getting worse. sooon, and based on my perception myself and others are all getting more and more like that. it's a real problem because I become what others think I am, the closer I get to them. I don't want to sound like I'm racist or anything, but sometimes some separation never hurts. I like to be around myself. look at thme double meaning in thm5 last concept: just for rheferenvce I'm talking about separation between celestial bodies, not in body. and all of that.
 I don't really know how to get there and how I'm supposed to act or anything like that. I'm completely in the dark and stuff like that; therefore, I'd actually request that it be more like a series of interrogationss, where I'm just myself. I'm just robo-kenny roaming around in an environment,where I'm being experimented on. I'm highly robotic, so why not act like one? I'll figure it out eventually. there's not to worry about.
 you know, love is not without cOnditions. there are many things that have to be fulfilled. I don't like that perspective. I'd like or rather to be just pure love. love stinks. yeah yeah.
+
+### 2023-12-17 10:25 - narration is good to have as an address, but not as a destination
+
+destination is never found, but it's always more of who I am.
