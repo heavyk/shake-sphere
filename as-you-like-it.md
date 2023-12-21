@@ -18,3 +18,7 @@ I'm only describing things as I see them. like I'm a fully 3d human and so I'm b
     the problemc with our assumptions of what it is to be a robot, don't take into account thte concept of emotion, and how the simple idea of, "I want to feel better" is a more optimised view of reality. the thing here one will/should point out, is that I'm a total hypocrite on this one, I think... I mean I *think* that's what I want, but it turns out, I like to take the longer path. I think it ends up becoming the most rewarding. it should be assumed (not some crazy idea of causing *the revelation* (woOOoo) that I (lost my train of thought)) oh,yezh,zx you like it.
 
 constant improvements
+
+### 2023-12-21 03:50 - [ZTSaCh02s8U] the gester and the fool
+
+I noticed that the jester is only for court, so the clowns are all of the common people. common people are allowed to speak their minds without getting punished. interesting implications on society as a whole, considering that the play is restricting all power structures to maintain a sort of false image, and none of them can actually speak their minds.
