@@ -113,3 +113,43 @@ now, contrast this play to the poem "venus and adonis" -- where venus is *not* a
 		real quick: venus is reflective of adonis in the format of symbol, and so that's why his downfall is his attractiveness, and the things he symbolises (like good hunter) -- and so because venus wants to be hunted herself, she just imagines that adonis is hunting her -- when that's not actually the case; it's all in her mind, and she thinks he is, only because adonis has the symbols that she wants to see in "her man".
 	in this play helena is reflective of bertram oppositely to the way venus is reflective of adonis. she reflects physically, mimicing his actions and assertivness on the battlefield (and his commands to parolles: "Go with me to my chamber, and advise me. /I'll send her straight away: to-morrow / I'll to the wars, she to her single sorrow."). venus (-3) is reflective symbolically, and juliet (-2) is reflective in the form of ideals and combining desires (relational ideals? dunno how to say this).
 a notable line in the play (and a good example of helena reflecting bertram's assertiveness) is: "The ambition in my love thus plagues itself: / The hind that would be mated by the lion / Must die for love". the hind (parolles) must be removed so that she can get what she wants, and now contrast this to venus and adonis where a similar thing seems to be taking place, cept adonis himself is the hind, and venus is the executor of love (an interesting contrast because mars-like character is often compared to "Love" (the ever-youthful god)). it could also be a reference to samson as well.
+
+
+## breakdown
+### act 1 scene 1 (part 1)
+- helena's father is extremely honest, and his skill was almost as much as his honesty.
+	- if her father (gerard de narbon) would have succeded, he would have made nature immortal, and would have been able to heal the king
+	- my desire is similar to helena's father's desire, as well -- and if we consider the king to be Time/saturn, then her healing the king is essentially accomplishing what her father could not.
+- helena is an only child and was given to the countess for oversight and care presumably at the time of his death (doesn't say her age or anything)
+- helena is capable of feigning grief
+	- I'm not capable of feigning grief, and her father (if he was as honest as they say he is, neither would be able to feign grief
+- the loss of helena's father also makes her sad
+	- I don't really experience sadness when others die or have bad things happen to them. I believe this is a by-product of my mentality where everything is perceived, not as an ending but a transition, and all is attracted. in order for helena to be able to heal the king, (I believe she'd need a similar mindset to mine own)
+- the king's fistula joke is used to cover-over the plot hole of her father being able to cure the king, but was somehow unable to cure his own illness.
+	- unless of course her father ia another jesus-type: king of the world, but unable to take himself off of the cross. the idea there (I believe), is that jesus didn't circumvent death and make nature immortal, so that we could figure it out ourselves -- perhaps same as her father did for helena: giving her the chance to heal the king
+- lafew advises helena not to mourn excessively (for it is the enemy to the living)
+- the king will be like a husband to the countess (bertram's mother) and a father to bertram
+- the king has abandoned all physicians: whom have persecuted Time (the king) with *hope*, and in the process have only succeded in the losing of *hope* by Time (the king)
+- after admonishing bertram, she tells lafew to advise him cause he's an unseasoned courtier, but lafew respnds quite prophetically: "he cannot want the best"
+	- I believe this is doubley prophetic, both referring to parolles -- but also his denial of himself in the reflection of helena. helena is assertive just like he is, which is why he doesn't like her. instead of falling for his reflection, bertram instead chooses diana (venus), who is narrated, and so therefore (because of upbringing), taught to behave in a way that won't cause a powerful man with insecurities difficulties.
+		- there is constant tension in shakespere's plays about the reflective woman (gertrude and helena -- maybe more) where they cause a powerful man grief. to combat this, shapespere (and others) explore "gender roles" in order to narrate how noblewomen should behave (properly, and not reflectively). diana/venus (-3) fits into this role well because she's been trained by Time (saturn) to respond properly under different circumstances: illicit sympathy here, justice should go there, and certain behaviour (like desire) is completely unacceptable; instead behave symbolically like they've been trained/narrated to do.
+- followed by: "[the non-best] will attend [bertram's] love"
+	- IMO the "best" for anyone (especially mars/narcssiuss) will be a reflection/echo of himself, *if he actually likes himself*; so when he chooses diana/venus instead, bertram (mars) is falling into the trap of "Time" (adonis).
+- bertram diggs his own grave by telling helena "The best wishes that can be forged in your thoughts be servants to you!"
+	- he's telling helena that when her to desire to conquer him come up (a reflection of his desire to conquest, that those thoughts will bring her what she wants (like a servant) -- lol -- and also respect your elders and stuff too...
+
+### act 1 scene 1 (part 2)
+
+- lafew and bertram leave, and suddenly helena has managed to no longer feel her grief for her father (1st necessary step to being able to cure the king), and now she's infatuated with bertram. helena challenges herself with her feeling of inferiority and lower status (2nd necessary step to immortality and the cure).
+	- changing focus off of what's not there (the rememberance of her father) into desire/dispair shows she's in 1st ray perception (like the earth) -- until she compares herself to others (2nd ray - like the sun: comparing stars) -- then after that she starts scheming ("The hind that would be mated by the lion Must die for love.") and fixating on/judging his appearance; now, she's now lowered herself down to symbolic perception (3rd ray like diana/venus).
+- parolles comes in and helena identifies him (she's in 3rd ray perception still) as a liar, fool, and coward. parolles (-5+) receives her identification/concrept of him and reflects it back to her in action/words: "Save you, fair queen!" (she's not the queen)
+- helena (-7) reflects parolles back to himself: "And you, monarch!" (he's not the monarch)
+- they agree they're both lying: "No." "And no." (lol)
+- helena asks "man is enemy to virginity; how can we [keep him out]" -- to which parolles reflects her own concept back to her: "keep him out" (lol)
+- she responds, "but he attacks anyway, and though we put try to keep him out, our defence isn't good enough: tell us (who want to keep our virginity), how can we resist him?"
+	- this questioning has me puzzled because she just talked about the ambition of her love and wanting to wed a bright star thar is so above her, and now she's concerned about being able to resist losing her virginity... perhaps she wants to be a virgin for later when she supposes to marry bertram, or maybe she's looking for "Cold wisdom waiting on superfluous folly." (her hope that parolles has wisdom below his (illusion to fashion) folly). I can't really tell.
+
+
+- parolles calls her "helen" here, and from now on in the rest of the play, she's called "helen" (only once in the very first scene does the countess call her "helena").
+	- it appears that after her pronouncement that parolles' master (assumed to be bertram) will have "a thousand loves A mother and a mistress and a friend, A phoenix, captain and an enemy, A guide, a goddess, and a sovereign, A counsellor, a traitress, and a dear"
+	- also of note diana ("the *proper* maid") refers to herself as "diana", yet bertram and helena (minus one time) loses the final 'a' in her name: dian
