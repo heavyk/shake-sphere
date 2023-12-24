@@ -9,3 +9,7 @@ the other way I forgot now. let me see if I czn rhemember it. there ix an extrem
 #### 2023-12-24 09:36 - ever heard of kickbacks?
 
 what's happenining here is that mars is firing up all of these enkidu to get ready and go down into physical, where they're going to tear the place up looking for these girls, but mars is going with them, so he's narrating his setup too: how many virgins does he want? what's his retinue and status going to look like? when setting up a new kingdom, it's important to already have the media blitz already at full blast.
+
+#### 2023-12-24 09:40 - each play encodes different behavioural expectations
+
+a tragedy will display unwanted behavioural qualities, as for example any vulcan that behaves reflectively (like parolles), is made out to be really awul; same with the women. these are always the cutthroat ones (reflecting of course their awful significant other) and so when they reflect the awful parts of the bad-guy, then they're blamed, because of their *behaviour*. it teaches women (and vulcan/rosalind alike) what they're supposed to like, and what how they're supposed act, and what things need to be reacted to. basic society building for monkeys: poet apes.
