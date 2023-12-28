@@ -26,3 +26,7 @@ I noticed that the jester is only for court, so the clowns are all of the common
 ### 2023-12-21 03:56 - new foil definition
 
 "touchstone the clown (a foil) gives rosalind a lot of fuel and energy for the things she discovers in the woods." -- interesting idea. I consider a foil as someone that is very receptive/absorbative to others and the environment around them. anyone who is sensitive knows that there's a lot of bad-feeling stuff out there, so instead of feeling it, it's turned (usually) into comedy. a foil also tends to "see through" (as if it were transparent: naive; also perceive the hidden wisdom/essence: sophia) as well, and that deep perception (or lack thereof), comes at a cost of being so sensitive. they're also childlike, because most adults have shut their sensitivity down. what did you say again? "she uses hit witt to fuel her own" -- ah yeah, you're right but I can't see that because I'm more centre perspective, so I just expect my witt to be reflected in others. most people are not in the fun-zone, and they do NOT want to be witty ane funny, which makes it all the more funnier. I flashed to malvolio, but I haven't seen that play before, so I'll keep it in mind. interesting
+
+## notes
+- orlando asks ganymede if he will have him. he says "yes [I'll have you], and [also] twenty more" (21 total)
+- ewes (little girl rams) are sold off at 12mo to quite a bit older rams (aries, mars)
