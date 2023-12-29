@@ -14,6 +14,7 @@
 	- king howitzer plans to show the world, there's more to life than guns and warfare [ie *soldiering*]
 	- howitzer/king is an idealist [(all desire, no implenentation) "this plan's gonna last, how long?"]
 - the 3 companions (baron, longhead, germain) are to live with king howitzer
+	- each of these display vulcan-like qualities (-5+) which means he *receives* a concept (that resonates with how he feels) and then outputs *symbol* (words, plans, decrees, processes) which reflects the desire the concept is founded on. 
 - all 3 companions expect to pine [not expecting to make it]; most realistic of them is baron
 	- quick observation: why are these guys wanting to study with the king? it seems the've been promised love (and probably happiness). they show up mentally already at the finish line. baron is the only "realistic" one, and he's just imagining the finish line coming sooner because *women will be allowed in court*. without this realistic realisation, these 3 were just going to spend 3y checked out, totally immersed in thier imaginations, and not in their *studies*.
 	- longhead says the above (3 years I'll spend in my flourishing imagination)
@@ -27,7 +28,15 @@
 	- baron wants to point out how unrealistic the whole idea is. he represents realism (I AM what I AM) of 3d physical realness.
 		- this style of thinking is the (6th?) stage of man where he's a got an instace for everything.
 			- the reason why he's got an instance for everything is cause he's got it all figured out: a complete structural system where everything can be explained and instanced in the mind (principle-tutor-letter)
-	- baron reads the rules they are proposing:
-		- longhead wants to punish anyone coming even even 1 mil from his *court*, by silencing any lavinia that wants to come near.
-			- why? to cause them fear of such a violent punishment (very roman style of thinking: just crucify him)
-		- howitzer wants to limit comminications. he doesn't want any talk at all with anyone that can pollute his thoughts, or likewise want the girls to know his thoughts.
+- baron reads the rules they are proposing:
+	- longhead wants to punish any woman coming even even 1 mil from his *court*, by silencing any lavinia that wants to come near.
+		- 1 mil is probably referring to the 1000 virgins... I get the sense that he wants to complete his 1000 virgins stint, before any of the girls are able to speak (to eachother? about how terrible he was?).
+		- why? to cause them *fear* of such a violent punishment (very roman style of thinking: just crucify him)
+	- howitzer wants to limit comminications. any man that breaks the law and even talks to a woman will be punished with *public shame*
+		- because howitzer is 1st ray perception, this probably means he doesn't want any talk with anyone that can pollute his thoughts. he wants to be focused and not constantly be distracted by idle chatter and worldly conversation. or, it's possible he *fears* the girls to knowing how he thinks about them, or knowing the contents of his *studies*: how desire works (ie, how to pick up girls.)
+		- howitzer is going to preoject his fears/desires outwardly, which means that the foundation of his concept is fear of shame. he doesn't want others (especially the public) to know undesirale (the culture's calculated undesireable) things about him.
+- turns out the french king's daughter is coming to *lie here* with the king (ie, work out a "deal"; these poor girls get sent off by their powerful monarch fathers like furnature, traded and used as bargaining chips in their political agendas, lol).
+- and so because there's already a beautiful girl on the way because of the father's physical motivations (7 - opposite of desire), then they must allow this rule to be broken because of *necessity*, the basest form of desire (evolution-of-desire).
+	- baron astutely points out that *necessity* will make them all to *forsworn* 3x1000 times (1000 virgins per year).
+- baron decides to agree to the agreement saying "I am forsworn on mere *necessity*"
+	- you know as a personal experience: when I lived in spain many people would ask me in bars why I didn't have girlfriends and stuff. I would tell them I had some really important mission that I wanted to build take over the world with computers and technology and stuff, and they'd look at me, having no concept of all of the technologies that I can conjure, and say "but don't you have *necessities?!?!*". I looked to them like a space alien because my desire to create technology is much higher than my desire for sex. spanish people perceive things that *need* to get done (the basest form of desire), because for them all other desire is *sexual desire*; thus they equate sexual desire with *necessity*.
