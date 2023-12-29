@@ -1,5 +1,5 @@
 # glossary
-## of the playcorrect W-I-LL-IAM SHAK-ESPEARE
+## of the unrivaled poet ape and playcorrect (W-I-LL)-IAM SHAK-ESPEARE ::
 - *base*: of a *quality* in a range, the lowest or most undesirable/unwanted one.
 - *town*: a busy vagina; lots of residents (hymen is god of every *town*. hymen peoples every *town*).
 - hymen's *bands*: wedding ring, but also refers to loss of virginity (her ring now broken, she wears on her finger)
