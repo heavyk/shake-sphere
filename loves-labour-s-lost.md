@@ -44,5 +44,13 @@
 	- howitzer knows he will be permanently shamed and allowed for all the world to see his faults; it's unavoidable to him and he knows it, so he wants to remind the other vulcans that they too will also have the same *shame* as him; and, if they want to make it a *competition*, he bets he will be the last one to break his *oath* [lose his virginity].
 - boye says the *competetors* in *oath*, are briefed that they should meet the girls *before [boye] came* (where? first coming? second coming? he's already talking to the girls before they've seen the competitors). boye then explains what that means: "he intends to *lodge* you in the *field*" [vaginal sex]
 - they meet the girls:
-	- howitzer calls silverstone *fair* princess and welcomes her to his *land*. silverstone reflects fairness back to him, and tells him, *welcomed* him, she has not *yet*.
+	- howitzer calls silverclog *fair* princess and welcomes her to his *land*. silverclog reflects fairness back to him, and tells him, *welcomed* him, she has not *yet*.
 		- the *roof* of this *court* is too high to be his [lol, she has no idea what a *court* is], and *welcome* to the *wide fields* [like a prostitute, strumpet, or bawd] to base, to be hers.
+	- howitzer responds to her reality check by saying: "you will be welcome to my court". he's admitting that he's overstepped, and is submitting to her punishment.
+		- in saturnian thinking (like the conversation between othello and hiago), when a top/emitter oversteps himself and violates the code [of [proper] conduct/behaviour], he has to take it in the butt (as punishment).
+	- silverclog says "I *will* be welcome to your *court*; conduct me thither [take me there]"
+	- howitzer tells silverclog (deer lady) that he has *sworn* an *oath*.
+	- silverclog (our lady) will help him become *forsworn*.
+	- howitzer says he won't do it just because the *world* wants it, but by my *will* (his own penis? lol) - the concept is he wants to have sex with himself. he really likes himself, for whom now armado is to be materialised. "but by my [own] will" is also about him only being able to do things he wants to do (not cause others, the world, want him to do it).
+	- silverclog says: "Why, *will* shall break it; *will* and nothing else" [lol, of course *will* will break the *oath*; what else would he put in her? a *spear*? and shake her around a bit?]. there's also the double meaning of her needing his conscent first.
+	- howitzer: "Your ladyship is ignorant what it is." [lol, she have no idea what she just said]. there's also the double meaning of him thinking he's going to trick her into having sex.
