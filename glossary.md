@@ -14,7 +14,7 @@
 - *land*: [not sure yet]
 - *welcomed*: well comed. climax of sexual intimacy.
 - *strumpet*: one of those 7th ray reflectors where with a little physical reflection, they'll return it. easy to pursuade with a physical contact. (looked down upon, cause these women are not loyal)
-- *bawd*: [not sure, but I think it's] pretty much the same as a strumpet, but in male form (like mercutio 7th ray, dull and narrated, not reflective)
+- *bawd*: [not sure, but I think it's] pretty much the same as a *strumpet*, but in male form (like mercutio 7th ray, dull and narrated, not reflective)
 - *quality*: referring to a *temperment* or *disposition*, but often referrs instead to physical endowment, instead.
 
 - *temperment*: mood, but more generally referring to the personality of a person: by the way they feel (thier *disposition*)
@@ -25,3 +25,10 @@
 - *I am*: penis.
 - *house*: a very ordinary *court*.
 - *cave*: worse living circumstances than a *house*.
+- *harbour*: docking one's *ship* somewhere. (the imagery is notable that large wooden objects stand out: ships, warfs, planks, shipping boxes; in a stark contrast to a lot of *water*)
+- *ship*: large wooden thing that floats on *water*; used in *wars*.
+- *word*: expulsion of the *will*
+- *arrest*: detain, retain something (usually *words*)
+- *aquittances*: evidenece of discharge (usually made with *words*)
+- *wars*: shedding of/first blood; particularly in the loss of virginity.
+- *sum*: the payment made after/of consummation (like a dowry)
