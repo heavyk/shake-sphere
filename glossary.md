@@ -5,7 +5,7 @@
 - hymen's *bands*: wedding ring, but also refers to loss of virginity (her ring now broken, she wears on her finger)
 - *field*: vagina. before it's a *town*, it's a *field*.
 - *lodging*: to enter into something (*town*, *field*, etc).
-- *court*: bumhole; particularly one of nobility.
+- *court*: hole; particularly one of nobility.
 - *book*: the valley beween the cheeks.
 - *rose*: redish opening: could be sphincter or vulva; denoted usually by smell: fish usually is for vulva, and frequently like a flower for sphincter.
 - *shame*: public humiliation for one's deeds, notably of things that frowned down upon behaviour (jealousy, knavery, ...).
@@ -17,5 +17,11 @@
 - *bawd*: [not sure, but I think it's] pretty much the same as a strumpet, but in male form (like mercutio 7th ray, dull and narrated, not reflective)
 - *quality*: referring to a *temperment* or *disposition*, but often referrs instead to physical endowment, instead.
 
-- *temperment*:
+- *temperment*: mood, but more generally referring to the personality of a person: by the way they feel (thier *disposition*)
 - *disposition*: the palpable presence around someone, usually reflective of their *temperment*.
+- *sworn*: [not totally sure but propbably referring to] the promise to break her virginity: a marriage *vow*.
+- *forsworn*: sex before marriage.
+- *will*: penis.
+- *I am*: penis.
+- *house*: a very ordinary *court*.
+- *cave*: worse living circumstances than a *house*.
