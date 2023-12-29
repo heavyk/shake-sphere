@@ -7,7 +7,7 @@
 - *lodging*: to enter into something (*town*, *field*, etc).
 - *court*: hole; particularly one of nobility.
 - *book*: the valley beween the cheeks.
-- *rose*: redish opening: could be sphincter or vulva; denoted usually by smell: fish usually is for vulva, and frequently like a flower for sphincter.
+- *rose*: redish opening: could be sphincter or vulva; denoted usually by smell: *fish* usually is for vulva, and frequently like a flower for sphincter.
 - *shame*: public humiliation for one's deeds, notably of things that frowned down upon behaviour (jealousy, knavery, ...).
 - *knave*: a particularly petty and *jealous* *bottom*.
 - *bottom*: [not totally sure, but the sense is] someone that nneds *court* punishment for egregious behaviour.
@@ -32,3 +32,17 @@
 - *aquittances*: evidenece of discharge (usually made with *words*)
 - *wars*: shedding of/first blood; particularly in the loss of virginity.
 - *sum*: the payment made after/of consummation (like a dowry)
+
+- *lion*: the *narrated* strong masculine figure. a well-met gentleman that stands as a conquerer, and prominant male consort (el).
+- *lion* of the *jews*: the narrated *lion* to come: seen in pious heraldry (and elsewhere), as the lion with the tounge sticking out.
+- *tounge*: represents the word of YHWV (narrated God) to become reality (as needed/wanted), and then later to become flesh (the actual conquering king that shows up: I AM [*will*]). God the father (YHVH) speaks the world into existence with *words* (the top-down perspective). God the son/lion (YHVVH), narrates his reality with *words*, just like the father, but narrates the of building the *physic* reality up to God (the *tower*).
+- *lion* being lying with the *lamb*: the lion is the narrated masculine (for vvitch paris is the butt of the joke), which is in contrast to aries the ram/lamb; the lion (mercury) is narrated to be awesome, but on the battlefield, if thoth is not narrated to be awesome on the battlefield, then, he is at the mercie of the gods/planets; mars, in contrast is pure-reaction on the battlefield, which allows him to "defy" the *will* of the *gods*, and triumphs even when his stars are not well-aligned.
+- *lion* being mated with the *lamb* (the evve/eve): the 
+- *gods*: planets or any other significant celestial body. for vulcan, venus, and thoth (the three moons of the sun), the planets play a significant role in deciding their fate (astrology). also referred to as stars. planets are just stars that have a protective shroud over them (sometimes the shroud is reflective (like aphrodite) and sometimes it's not (like vulcan/thoth/venus)).
+- *tower*: a long pointy cyllendar where *prisoners* are kept
+- *prisoner*: retained seamen
+- *seamen*: men of the *ship*; hopefully not thrown overboard and lost to the *sea*: the best seamen are the ones that stay with the *ship*.
+- *sea*: the plentiful *waters* that cover the earth, containing a lot of *fish*. the endless supply of females/*waters* for the protruding masculine *land*.
+- *physic*: the body/bawdy of a person in *material* *manner* (7), and *form* (3) following (what do they *really* look like (7), behind the (3) shroud/facade). associated with shame and nakedness, because the symbolic/imaginary clothes/garments no longer cover them.
+- *manner*: physical (3d) appearance; stands as a contrast to the symbolic/imaginary *form*.
+- *form*: the symbolic/imaginary [symbolic *disposition*] that someone has built-up (or was born with), from their *honour* and *reputation*.
