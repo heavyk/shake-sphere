@@ -1,5 +1,5 @@
 # glossary
-
+## of the playcorrect W-I-LL-IAM SHAK-ESPEARE
 - *base*: of a *quality* in a range, the lowest or most undesirable/unwanted one.
 - *town*: a busy vagina; lots of residents (hymen is god of every *town*. hymen peoples every *town*).
 - hymen's *bands*: wedding ring, but also refers to loss of virginity (her ring now broken, she wears on her finger)
@@ -46,6 +46,8 @@
 - *physic*: the body/bawdy of a person in *material* *manner* (7), and *form* (3) following (what do they *really* look like (7), behind the (3) shroud/facade). associated with shame and nakedness, because the symbolic/imaginary clothes/garments no longer cover them.
 - *manner*: physical (3d) *appearance* as a reflection of the action; stands as a contrast to the symbolic/imaginary *form*. *manner* is used to build *reputation* and *honour* and is slightly different from *conduct*, because *physical* *appearance* can be used to cover over the emotion/concept/desire from which it originates. as an example, concept/emotion/*disposition* felt, gets turned into both appearance and also action; usually they reflect eachother: so, if I feel angry, I *wiLL* look both angry in *physic* and *action* (though maybe not in *form*)
 - *form*: the symbolic/imaginary [symbolic *disposition*] that someone has built-up (or was born with), from their *honour* and *reputation*. *form* can be built by performing *action* according to the *code* of *conduct*; *reputation* is built in the same way.
-- *vv*: represents the *book*. for example, "vvilliam shakspear" can be read as "*book* of *will* *IAM* (the *LL*) *spear* *shake*-her. another example: let's say I created an *authour* named "plowshark"; the narrartive that I want to distribute will be delivered by my *books*; so, for example a "plovvsharck" may show up to translate the concept into *words* for my *books*. a concept rendered into symbol/*words* by a ganymede.
+- *vv*: represents the *book*. for example, "vvilliam shakspear" can be read as "*book* of *will* *IAM* (the *LL*) *spear* *shake*-her. another example: let's say I created an *authour* named "plowshark"; the narrartive that I want to distribute will be delivered by my *books*; so, for example a "plovvsharck" may show up to translate the concept into *words* for my *books*. a concept rendered into symbol/*words* by a ganymede. 
 - *LL*: *will* + *IAM*. the *disposition* of someone in both *manner* and *form* following represented in a positive/emitter way: the *lion*.
 - *eve*|*evve*/*ewe*: the soul-mate of any 7th ray. if *vulcan* is a *ganymede*, then he desires *aries*: *eve* in masculine form. however, if *vulcan* is *rosalind*, then she desires a ewe: a reflection of herself: mars in young feminine form.
+- *v*: vagina or cup: a recepticle. v/w is an important foundation of *wordplay*; because a boy has only only one *cup* (*v*) and a girl has two *cups* (*vv*), so it's ambiguous whether V means male or female, and whether W is male or female; the roles can be reversed or perceived in any way *desired*.
+- *wordplay*: the confusion of *meaning*, by using similarly *sounding*/*appearing* *symbol*; and usually the confused symbols' *meaning* is opposite to their *feeling*/*concept*.
