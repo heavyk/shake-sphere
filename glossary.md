@@ -22,7 +22,7 @@
 - *sworn*: [not totally sure but propbably referring to] the promise to break her virginity: a marriage *vow*.
 - *forsworn*: sex before marriage.
 - *will*: penis.
-- *I am*/*iam*: penis; also the definition of oneself in action/movement/syntax (from the physical braine's perspective), but also the immutable desire to go after something and to make one's *mark* (necessitis: the basest form of desire). also represents the *disposition* of someone.
+- *I AM*/*IAM*: penis; also the definition of oneself in action/movement/syntax (from the physical braine's perspective), but also the immutable desire to go after something and to make one's *mark* (necessitis: the basest form of desire). also represents the *disposition* of someone.
 - *house*: a very ordinary *court*.
 - *cave*: worse living circumstances than a *house*.
 - *harbour*: docking one's *ship* somewhere. (the imagery is notable that large wooden objects stand out: ships, warfs, planks, shipping boxes; in a stark contrast to a lot of *water*)
@@ -48,6 +48,10 @@
 - *form*: the symbolic/imaginary [symbolic *disposition*] that someone has built-up (or was born with), from their *honour* and *reputation*. *form* can be built by performing *action* according to the *code* of *conduct*; *reputation* is built in the same way.
 - *vv*: represents the *book*. for example, "vvilliam shakspear" can be read as "*book* of *will* *IAM* (the *LL*) *spear* *shake*-her. another example: let's say I created an *authour* named "plowshark"; the narrartive that I want to distribute will be delivered by my *books*; so, for example a "plovvsharck" may show up to translate the concept into *words* for my *books*. a concept rendered into symbol/*words* by a ganymede. 
 - *LL*: *will* + *IAM*. the *disposition* of someone in both *manner* and *form* following represented in a positive/emitter way: the *lion*.
-- *eve*|*evve*/*ewe*: the soul-mate of any 7th ray. if *vulcan* is a *ganymede*, then he desires *aries*: *eve* in masculine form. however, if *vulcan* is *rosalind*, then she desires a ewe: a reflection of herself: mars in young feminine form.
-- *v*: vagina or cup: a recepticle. v/w is an important foundation of *wordplay*; because a boy has only only one *cup* (*v*) and a girl has two *cups* (*vv*), so it's ambiguous whether V means male or female, and whether W is male or female; the roles can be reversed or perceived in any way *desired*.
+- *eve*|*evve*/*ewe*: the soul-mate of any 7th ray. if *vulcan* is a *ganymede*, then he desires *aries*: an *eve* in masculine form. however, if *vulcan* is *rosalind*, then she desires a ewe: a reflection of herself: mars in young feminine form (celia).
+- *V*: vagina or *cup*: a recepticle. ambiguity between *V*/*VV* (in contrast to *M*/*W*) is an important foundation of *wordplay*; because a boy has only only one *cup* (*v*) and a girl has two *cups* (*vv*), so it's ambiguous whether *V*/*VV* specifically means male or female; the gender *indentity* can be reversed or perceived in any way *desired*.
 - *wordplay*: the confusion of *meaning*, by using similarly *sounding*/*appearing* *symbol*; and usually the confused symbols' *meaning* is opposite to their *feeling*/*concept*.
+- *M*: *matter*; *our lady*; earth, *physic*: the *matte* (material) and *sensual* (of the senses). roughly speaking a feminine instantion of the earth.
+- *W*: *will*; the ram, aries/mars. roughly speaking a masculine instantiation of the earth.
+- *cup*/*chalice*/*gral*: functional input; a physical sensor that is receptive to *words*. as an example (in *wordplay*): "take this *cup*/*V* away from me" could mean to remove a *V* (*vv*/*W* -> *v*).
+- *identity*: [not totally sure but I think it's] *IAM* in *manner* and *form*; that is, a perceived outer facade of any concept or *disposition*.
