@@ -22,7 +22,7 @@
 - *sworn*: [not totally sure but propbably referring to] the promise to break her virginity: a marriage *vow*.
 - *forsworn*: sex before marriage.
 - *will*: penis.
-- *I am*: penis.
+- *I am*/*iam*: penis; also the definition of oneself in action/movement/syntax (from the physical braine's perspective), but also the immutable desire to go after something and to make one's *mark* (necessitis: the basest form of desire). also represents the *disposition* of someone.
 - *house*: a very ordinary *court*.
 - *cave*: worse living circumstances than a *house*.
 - *harbour*: docking one's *ship* somewhere. (the imagery is notable that large wooden objects stand out: ships, warfs, planks, shipping boxes; in a stark contrast to a lot of *water*)
@@ -37,12 +37,15 @@
 - *lion* of the *jews*: the narrated *lion* to come: seen in pious heraldry (and elsewhere), as the lion with the tounge sticking out.
 - *tounge*: represents the word of YHWV (narrated God) to become reality (as needed/wanted), and then later to become flesh (the actual conquering king that shows up: I AM [*will*]). God the father (YHVH) speaks the world into existence with *words* (the top-down perspective). God the son/lion (YHVVH), narrates his reality with *words*, just like the father, but narrates the of building the *physic* reality up to God (the *tower*).
 - *lion* being lying with the *lamb*: the lion is the narrated masculine (for vvitch paris is the butt of the joke), which is in contrast to aries the ram/lamb; the lion (mercury) is narrated to be awesome, but on the battlefield, if thoth is not narrated to be awesome on the battlefield, then, he is at the mercie of the gods/planets; mars, in contrast is pure-reaction on the battlefield, which allows him to "defy" the *will* of the *gods*, and triumphs even when his stars are not well-aligned.
-- *lion* being mated with the *lamb* (the evve/eve): the 
+- *lion* being mated with the *lamb* (the evve/eve): evve (-5+) has a *book* and ewe/eve (-7) has a *field*; both come from a *ram*: *aries*. both of them spell disaster to the lion. *eve* will kill *lion* (by reflecting his own narrated self back to him) in the mating process (for example if he's disloyal, *eve* will be disloyal (a *strumpet*) to him), yielding/producing a new honey-pot in the process (such is the *will* of the *our lady* the *physic*). the end of the age of the lion, where he was once [narrated to be] on *top*.
 - *gods*: planets or any other significant celestial body. for vulcan, venus, and thoth (the three moons of the sun), the planets play a significant role in deciding their fate (astrology). also referred to as stars. planets are just stars that have a protective shroud over them (sometimes the shroud is reflective (like aphrodite) and sometimes it's not (like vulcan/thoth/venus)).
 - *tower*: a long pointy cyllendar where *prisoners* are kept
 - *prisoner*: retained seamen
 - *seamen*: men of the *ship*; hopefully not thrown overboard and lost to the *sea*: the best seamen are the ones that stay with the *ship*.
 - *sea*: the plentiful *waters* that cover the earth, containing a lot of *fish*. the endless supply of females/*waters* for the protruding masculine *land*.
 - *physic*: the body/bawdy of a person in *material* *manner* (7), and *form* (3) following (what do they *really* look like (7), behind the (3) shroud/facade). associated with shame and nakedness, because the symbolic/imaginary clothes/garments no longer cover them.
-- *manner*: physical (3d) appearance; stands as a contrast to the symbolic/imaginary *form*.
-- *form*: the symbolic/imaginary [symbolic *disposition*] that someone has built-up (or was born with), from their *honour* and *reputation*.
+- *manner*: physical (3d) *appearance* as a reflection of the action; stands as a contrast to the symbolic/imaginary *form*. *manner* is used to build *reputation* and *honour* and is slightly different from *conduct*, because *physical* *appearance* can be used to cover over the emotion/concept/desire from which it originates. as an example, concept/emotion/*disposition* felt, gets turned into both appearance and also action; usually they reflect eachother: so, if I feel angry, I *wiLL* look both angry in *physic* and *action* (though maybe not in *form*)
+- *form*: the symbolic/imaginary [symbolic *disposition*] that someone has built-up (or was born with), from their *honour* and *reputation*. *form* can be built by performing *action* according to the *code* of *conduct*; *reputation* is built in the same way.
+- *vv*: represents the *book*. for example, "vvilliam shakspear" can be read as "*book* of *will* *IAM* (the *LL*) *spear* *shake*-her. another example: let's say I created an *authour* named "plowshark"; the narrartive that I want to distribute will be delivered by my *books*; so, for example a "plovvsharck" may show up to translate the concept into *words* for my *books*. a concept rendered into symbol/*words* by a ganymede.
+- *LL*: *will* + *IAM*. the *disposition* of someone in both *manner* and *form* following represented in a positive/emitter way: the *lion*.
+- *eve*|*evve*/*ewe*: the soul-mate of any 7th ray. if *vulcan* is a *ganymede*, then he desires *aries*: *eve* in masculine form. however, if *vulcan* is *rosalind*, then she desires a ewe: a reflection of herself: mars in young feminine form.
