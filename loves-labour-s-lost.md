@@ -43,3 +43,6 @@
 - howitzer subscribes his name and says anyone who breaks the law stands in eternal *shame*
 	- howitzer knows he will be permanently shamed and allowed for all the world to see his faults; it's unavoidable to him and he knows it, so he wants to remind the other vulcans that they too will also have the same *shame* as him; and, if they want to make it a *competition*, he bets he will be the last one to break his *oath* [lose his virginity].
 - boye says the *competetors* in *oath*, are briefed that they should meet the girls *before [boye] came* (where? first coming? second coming? he's already talking to the girls before they've seen the competitors). boye then explains what that means: "he intends to *lodge* you in the *field*" [vaginal sex]
+- they meet the girls:
+	- howitzer calls silverstone *fair* princess and welcomes her to his *land*. silverstone reflects fairness back to him, and tells him, *welcomed* him, she has not *yet*.
+		- the *roof* of this *court* is too high to be his [lol, she has no idea what a *court* is], and *welcome* to the *wide fields* [like a prostitute, strumpet, or bawd] to base, to be hers.
