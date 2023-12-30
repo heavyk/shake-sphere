@@ -4,16 +4,16 @@
 - new ideas in navarre:
 	- 1939-09: ominous clouds of war threaten europe, so the young king of navarre (returning from *military munouvers*) announces he has an audacious plan for himself and *his court*:
 		- (he and his companions are to):
-			- cast off ther militry uniforms [leave *soldiering* behind] (while world events still allow (why?))
+			- cast off ther militry uniforms [leave *soldiering* behind] (while world events still allow (why?)) [while saying this, it shows pictures of their uniforms: "bad boy barowne" "the king" "'DUKE' dumain(?)" "Lucky 7 longaville"]
 			- devote theirselves to 3y of study
 			- sleep little
 			- eat and drink less
 			- devote theirselves tto an inspiring *program* of self-improvement
 		- no women will be allowed inside the *court*
 			- one exception: the king's principle tutor
-	- king howitzer plans to show the world, there's more to life than guns and warfare [ie *soldiering*]
-	- howitzer/king is an idealist [(all desire, no implenentation) "this plan's gonna last, how long?"]
-- the 3 companions (baron, longhead, germain) are to live with king howitzer
+	- howitzer plans to show the world, there's more to life than guns and warfare [ie *soldiering*]
+	- howitzer is an idealist [(all desire, no implenentation) "this plan's gonna last, how long?"]
+- the 3 companions (baron, longhead, germain) are to live with howitzer
 	- each of these display vulcan-like qualities (-5+), very much like me; which means vulcan will *receive* a concept (that resonates with how she feels) and then outputs a *symbolic* responce (words, plans, decrees, processes) which reflects the desire the concept is founded on. vulcan is conceptually reflective, very much like a 1st ray *lioness*, but not quite so pure in their desire (lioness's looking at it from top-down (universal-perspective: everything is a reflection of me), and vulcan from bottom-up: I attract the things around me that I want). so I will now refer to these characters as females: reflective -- though they are played by dull (non-reflecting) male characters. I'll distinguish between these two as ganymede and rosalind; vulcan is either.
 - all 3 companions expect to pine [not expecting to make it]; most realistic of them is baron
 	- quick observation: why are these guys wanting to study with the king? it seems the've been promised love (and probably happiness). they show up mentally already at the finish line. baron is the only "realistic" one, and he's just imagining the finish line coming sooner because *women will be allowed in court*. without this realistic realisation, these 3 were just going to spend 3y checked out, totally immersed in thier imaginations, and not in their *studies*.

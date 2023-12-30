@@ -59,3 +59,14 @@
 - *message*: *desire* transmitted conceptually, then later translated into *symbol*
 - *symbol*: *action*/*words*/*work*, *appearance*/*form*/*structure*.
 - *practise*: *symbol* in *action*.
+
+
+
+present'd
+introduc'd
+eye, oath
+
+### 2023-12-30 07:55 - a comment on the "veracity" of my glossary
+
+*I* do not consider it to be anything remotely close to what the OG shakespeare intended to mean. I'm certain (cause I did it on purpose) that there are a lot of anachronisms and modernisation of antiquated ideas. I probably have a whole lot of it way off. I decided to write the glossary so that when I write my interpretations and meanings of a particular part, there is at least somewhat of a reference to how my brain is interpretting the symbols. eventually, with the passage of time, my own interpretations will come back to haunt me, and I'll eventually become a reflection of my own ideas: the good and the bad equally (in my perception).
+I plan to continually update this as my ideas change and I get more information. I've only seen/read (and am familiar with), as of today, probably only 10-20% of his works. I do not claim in any way to be an expert. I'm just putting my (sometimes) mistaken and (sometimes) correct symbolism out there so everyone can see it. I don't mind getting stuff wrong, so I'm free to tell the world how I see things. since I don't often get corrected, I'm what I write (like any conquering mars) will become "truth" or "hidden" (cause it conflicts with something). neither of those are my intention, so good luck and fare thee well.
