@@ -55,7 +55,7 @@
 - *W*: *will*; the ram, aries/mars. roughly speaking a masculine instantiation of the earth.
 - *cup*/*chalice*/*gral*: a recipient of messages; a physical vortex that is receptive. as an example, (in *wordplay*) "take this *cup*/*V* away from me" could mean to remove a *V* (*vv*/*W* -> *v*).
 - *identity*: [not totally sure but I think it's] *IAM* in *manner* and *form*; that is, a perceived outer facade of any concept or *disposition*.
-- *recipient*: a *chalice* or *cup*, capable of receiving a *message* usually in the form of *words*.
-- *message*: *desire* transmitted conceptually, then later translated into *symbols*
-- *symbol*: *action*/*words*/*work*, *appearance*/*form*/*structure*
-- *practise*: *symbol* in *action*
+- *recipient*: a *chalice*, capable of receiving a *message* usually in the form of *words*.
+- *message*: *desire* transmitted conceptually, then later translated into *symbol*
+- *symbol*: *action*/*words*/*work*, *appearance*/*form*/*structure*.
+- *practise*: *symbol* in *action*.
