@@ -59,7 +59,7 @@
 - *message*: *desire* transmitted conceptually, then later translated into *symbol*
 - *symbol*: *action*/*words*/*work*, *appearance*/*form*/*structure*.
 - *practise*: *symbol* in *action*.
-
+- *speed*: [at first I assumed it was another name for *mercury*, but now I think it's] another name for *vulcan*
 
 
 present'd
