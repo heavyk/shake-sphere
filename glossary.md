@@ -81,11 +81,20 @@
 - *kiss*:
 - *question*: penis. also produces *answers* (with *words*). big *questions* often times yield good *answers*
 - *answer*: a well-formed responce to the question. [there is confusion in the image because sometimes the answer is a *cup* and sometimes the answer is a lot of *seamen*. the confusion is peobably intentional]
-
+- *beseech*: to request *words* from your *highness*
+- *highness*: erect.
+- *churl* unstructured output of *words*. (similar to *marble*)
+- *marble*: a white stone with black streaks, which makes it look like a goopy mess.
+- *clown*:
+- *jester*:
+- *churlish*: unreasonable and emotional. not forming sentences in a coherent way, which makes them difficult to be around. it also sounds a lot like "girlish", where the image there is unreasonable and emotional. [the shakespere works I've seen are like promo material for the acquision of young girls: I've noticed he goes out of his way to talk about the young ones as being really great for open someone's eyes (sometimes all three), how much energy and vitality they have, but doesn't label them symbolically as being of lower intelligence or annoying. for the older ones though, he has quite the critisim. [usually the dialoge is mixed and portrayed by an older woman character, but when he's describing the little girls, there is a reference to their hieght or youthfulness]. therefore almost all of the complaints shakespere has with girls and women; young virgins and old virgins, he he puts the image of the receptive male over the top of the female he's identifying]
 
 present'd
 introduc'd
 eye, oath
+
+## dualities
+- *churlish* *disposition*: is to have the presence about them of unkempt *words*. to be upset and dissatisfied. [the image here is of the courtier when he's upset (usually about something his *words* caused him); and also when the *fool* is upset about something not being manipulated the way he wants. parolles is a good example]
 
 ### 2023-12-30 07:55 - a comment on the "veracity" of my glossary
 
