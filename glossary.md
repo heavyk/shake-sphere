@@ -59,7 +59,28 @@
 - *message*: *desire* transmitted conceptually, then later translated into *symbol*
 - *symbol*: *action*/*words*/*work*, *appearance*/*form*/*structure*.
 - *practise*: *symbol* in *action*.
-- *speed*: [at first I assumed it was another name for *mercury*, but now I think it's] another name for *vulcan*
+- *speed*: another name for *mercury* or perhaps *vulcan*
+- *traitor*: a girl dressed as a boy or a boy dressed as a girl. [the image that is conveyed is that lusty vulcan/bottom/knaves must be girls in a boy's body, and so they betray their gender]
+
+- *leg*: penis; and a particularly large one, at that.
+- *foot*: penis; and when trying to put it into a small hole, it's like trying to shove a foot into a small sock.
+- *hand*: something that goes in a *glove*. usually a *hand* is kissed with the *lips*
+- *liege*: penis of noble *disposition*.
+- *courtier*: a *court* penis. usually very galant.
+- *lip*: usually vaginal lips, but *wordplay* often confuses the matter with something *words* come out of.
+- *head*: a thinking apparatus, sometimes located between the legs.
+- *cap*: something a *head* goes into.
+- *glove*: something that fits tightly around the *fingers* (usually refers to a vagina).
+- *chair*: something that a buttocks sits upon. [also comes with imagery of a man with an erect penis having someone sit on his lap]
+- *bush*: pubic hair. under a bush is usually the vagina, and behind a bush is usually the buttocks.
+- *whipping*: something that you give to a *horse*. [I haven't]
+- *horse*: a powerful steed [usually of mars or the sun]. gods have many of them, and ride them wherever they desire; even through the air: the might and will of the gods, riding both the stallion and the mare.
+- *business*: [not totally sure. something about sex though, that's for sure]
+- *fool*: 
+- *say*, *tell*, *speak*: to produce *words*.
+- *kiss*:
+- *question*: penis. also produces *answers* (with *words*). big *questions* often times yield good *answers*
+- *answer*: a well-formed responce to the question. [there is confusion in the image because sometimes the answer is a *cup* and sometimes the answer is a lot of *seamen*. the confusion is peobably intentional]
 
 
 present'd
