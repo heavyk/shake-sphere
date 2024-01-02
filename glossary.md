@@ -75,10 +75,10 @@
 - *bush*: pubic hair. under a bush is usually the vagina, and behind a bush is usually the buttocks.
 - *whipping*: something that you give to a *horse*. [I haven't]
 - *horse*: a powerful steed [usually of mars or the sun]. gods have many of them, and ride them wherever they desire; even through the air: the might and will of the gods, riding both the stallion and the mare.
-- *business*: [not totally sure. something about sex though, that's for sure]
-- *fool*: 
+- *business*: sex, which has the intention of gaining *favours* from the partner
+- fool: 
 - *say*, *tell*, *speak*: to produce *words*.
-- *kiss*:
+- kiss:
 - *question*: penis. also produces *answers* (with *words*). big *questions* often times yield good *answers*
 - *answer*: a well-formed responce to the question. [there is confusion in the image because sometimes the answer is a *cup* and sometimes the answer is a lot of *seamen*. the confusion is peobably intentional]
 - *beseech*: to request *words* from your *highness*
@@ -88,6 +88,25 @@
 - *clown*:
 - *jester*:
 - *churlish*: unreasonable and emotional. not forming sentences in a coherent way, which makes them difficult to be around. it also sounds a lot like "girlish", where the image there is unreasonable and emotional. [the shakespere works I've seen are like promo material for the acquision of young girls: I've noticed he goes out of his way to talk about the young ones as being really great for open someone's eyes (sometimes all three), how much energy and vitality they have, but doesn't label them symbolically as being of lower intelligence or annoying. for the older ones though, he has quite the critisim. [usually the dialoge is mixed and portrayed by an older woman character, but when he's describing the little girls, there is a reference to their hieght or youthfulness]. therefore almost all of the complaints shakespere has with girls and women; young virgins and old virgins, he he puts the image of the receptive male over the top of the female he's identifying]
+- *argument*: lots of furious and heated *words* [the image is of a disagreement that two men can have with one another: does the argument want to be made with *words*, and if so, someone will have to *sumbit* to the other's one's words, especially if they're *right*]
+- *office*: where *business* is *conducted*
+- favour
+- honour
+- right:
+- write: usally done with a *pen*. if the writing is of good *character*, the writing is *right* *honourable*
+- wronged: the opposite of *write*: slanderous *words*, and hurtful *jest*.
+- pen: penis. also makes *words*
+- *jest*: *humour* made of *words*
+- *humour*: *temperment* (of the *character*) + *disposition* (in resonce to the way the *character* is supposed to *play* his *part*)
+- *character*: a *player* on the world stage. everyone is given a *part* to *play*
+- *play*: symbolic sequence of *words*, *actions*, *motions*, *reactions*, *reolutions* and *insight*, designed to evoke a powerful feeling responce/emotion in both the *player* and the *flock*.
+- *flock*: usually of *sheep*; the most notable are the *rams*, *lambs* and the *shepherd*
+- *rams*: powerful masculine *sheep* with *horns*
+- *horns*: sign of infedelity.
+- *shepherd*: guidance for the *sheep*: usually not politically (unless he's in *court*), but instead artistically in the form of *plays*, *drama*, *music*, *movies*, *theatre* (on the battlefield or on the stage); the archetypical *aries*, having been seasoned by the passage of *Time*.
+- *sheep*: children of *aries*
+- *aries*, *mars*: top, and all around great guy. he's definitely an improvement on homer's portrayal of him, that's for sure.
+
 
 present'd
 introduc'd
