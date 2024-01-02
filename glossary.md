@@ -25,7 +25,7 @@
 - *I AM*/*IAM*: penis; also the definition of oneself in action/movement/syntax (from the physical braine's perspective), but also the immutable desire to go after something and to make one's *mark* (necessitis: the basest form of desire). also represents the *disposition* of someone.
 - *house*: a very ordinary *court*.
 - *cave*: worse living circumstances than a *house*.
-- *harbour*: docking one's *ship* somewhere. (the imagery is notable that large wooden objects stand out: ships, warfs, planks, shipping boxes; in a stark contrast to a lot of *water*)
+- *harbour*: docking one's *ship* somewhere. [the imagery for this word is notable because large wooden objects stand out: ships, warfs, planks, shipping boxes; in a stark contrast to lots of *water*]
 - *ship*: large wooden thing that floats on *water*; used in *wars*.
 - *word*: expulsion of the *will*
 - *arrest*: detain, retain something (usually *words*)
@@ -62,7 +62,7 @@
 - *speed*: another name for *mercury* or perhaps *vulcan*
 - *traitor*: a girl dressed as a boy or a boy dressed as a girl. [the image that is conveyed is that lusty vulcan/bottom/knaves must be girls in a boy's body, and so they betray their gender]
 
-- *leg*: penis; and a particularly large one, at that.
+- *leg*: penis; and a particularly large one, at that. [also note how the leg extends: looks similar to getting an erection]
 - *foot*: penis; and when trying to put it into a small hole, it's like trying to shove a foot into a small sock.
 - *hand*: something that goes in a *glove*. usually a *hand* is kissed with the *lips*
 - *liege*: penis of noble *disposition*.
@@ -72,13 +72,13 @@
 - *cap*: something a *head* goes into.
 - *glove*: something that fits tightly around the *fingers* (usually refers to a vagina).
 - *chair*: something that a buttocks sits upon. [also comes with imagery of a man with an erect penis having someone sit on his lap]
-- *bush*: pubic hair. under a bush is usually the vagina, and behind a bush is usually the buttocks.
-- *whipping*: something that you give to a *horse*. [I haven't]
-- *horse*: a powerful steed [usually of mars or the sun]. gods have many of them, and ride them wherever they desire; even through the air: the might and will of the gods, riding both the stallion and the mare.
-- *business*: sex, which has the intention of gaining *favours* from the partner
+- *bush*: pubic hair. "under a bush" is usually the vagina, and "behind a bush" is usually the buttocks.
+- *whipping*: something that you give to a *horse*. [the image has two qualities: one whipping is to make the *horse* go faster, and the other is just a general beating in the form of *punishment*]
+- *horse*: a powerful steed [usually of mars or the sun]. gods have many of them, and ride them wherever they desire (even through the air): the might and will of the gods, riding both the stallion and the mare.
+- *business*: sex, which has the intention of gaining *favours* from the *business* *partner*
 - fool: 
 - *say*, *tell*, *speak*: to produce *words*.
-- kiss:
+- *kiss*: to place one's *lips* on or around something to show affection.
 - *question*: penis. also produces *answers* (with *words*). big *questions* often times yield good *answers*
 - *answer*: a well-formed responce to the question. [there is confusion in the image because sometimes the answer is a *cup* and sometimes the answer is a lot of *seamen*. the confusion is peobably intentional]
 - *beseech*: to request *words* from your *highness*
@@ -87,8 +87,8 @@
 - *marble*: a white stone with black streaks, which makes it look like a goopy mess.
 - *clown*:
 - *jester*:
-- *churlish*: unreasonable and emotional. not forming sentences in a coherent way, which makes them difficult to be around. it also sounds a lot like "girlish", where the image there is unreasonable and emotional. [the shakespere works I've seen are like promo material for the acquision of young girls: I've noticed he goes out of his way to talk about the young ones as being really great for open someone's eyes (sometimes all three), how much energy and vitality they have, but doesn't label them symbolically as being of lower intelligence or annoying. for the older ones though, he has quite the critisim. [usually the dialoge is mixed and portrayed by an older woman character, but when he's describing the little girls, there is a reference to their hieght or youthfulness]. therefore almost all of the complaints shakespere has with girls and women; young virgins and old virgins, he he puts the image of the receptive male over the top of the female he's identifying]
-- *argument*: lots of furious and heated *words* [the image is of a disagreement that two men can have with one another: does the argument want to be made with *words*, and if so, someone will have to *sumbit* to the other's one's words, especially if they're *right*]
+- *churlish*: unreasonable and emotional. not forming sentences in a coherent way, which makes them difficult to be around. it also sounds a lot like "girlish" and "childish" combined. [the shakespere works I've seen are like promo material for the acquision of young girls: I've noticed he goes out of his way to talk about the young ones as being really great for to someone's eyes (sometimes all three), and praises how much energy and vitality they have (and give to thier partners), but takes special care to not label them symbolically as being of lower intelligence or annoying. for the older ones though, he has quite the critisim. [usually the dialoge describing the young girls are playbed by an older woman character (ex. juliet, helena, or desdemona), so een though the character is of adult age the descriptions of them paint them as little girls, refering to their hieght or youthfulness]. therefore almost all of the complaints shakespere has with girls and women; young virgins and old virgins, they're not played by female characters, and instead his griefs with women are portrayed by a receptive male instead]
+- *argument*: lots of furious and heated *words* [the image is of a disagreement that two men can have with one another: does the argument want to be made with *words*, and if so, who will have to *sumbit* to the other's one's words, especially if they're *right*]
 - *office*: where *business* is *conducted*
 - favour
 - honour
@@ -97,7 +97,7 @@
 - wronged: the opposite of *write*: slanderous *words*, and hurtful *jest*.
 - pen: penis. also makes *words*
 - *jest*: *humour* made of *words*
-- *humour*: *temperment* (of the *character*) + *disposition* (in resonce to the way the *character* is supposed to *play* his *part*)
+- *humour*: *temperment* (of the *character*) + *disposition* (in resonace to the way the *character* is supposed to *play* his *part*)
 - *character*: a *player* on the world stage. everyone is given a *part* to *play*
 - *play*: symbolic sequence of *words*, *actions*, *motions*, *reactions*, *reolutions* and *insight*, designed to evoke a powerful feeling responce/emotion in both the *player* and the *flock*.
 - *flock*: usually of *sheep*; the most notable are the *rams*, *lambs* and the *shepherd*
@@ -107,14 +107,36 @@
 - *sheep*: children of *aries*
 - *aries*, *mars*: top, and all around great guy. he's definitely an improvement on homer's portrayal of him, that's for sure.
 - *creature*: a particularly young girl.
-- grave, tomb:
+- *grave*, *tomb*: kinda like a *house* or *court* [but I think it has to do with the age of the *recipient*]. the idea is that the *grave* or *tomb* kills the little man that goes inside of it, unless of course, he's *resurrected*.
+- *resurrected*: after the little death, it takes a period of time before your *highness* can *come again*.
+- *knell*: a *bell*; like a more audible *court*. also has the sense of violently waking up, the lights coming on, or alarm: a harbinger of what is to *come*.
+- *come*: hight of sexual climax and the opening of the eyes. it encapsulates mars perspective of *conquering*: "I *came*, I *saw*, I *overcame*
+- *bell*: sounds like beautiful, is also a dragon, butt is mostly an instrument for making sound.
+- *read*: to pleasure oneself with a *book*.
+- *ear*: something that *hears* *words*.
+- *hear*: to receive or understand *words*.
+- *hark*: to take great pleasure in the reception of *words*.
+- *overcome*, *overcame*: more than *came*.
+- trumpet:
+- *pilgrim*: someone on a journey to acquire a *sacred place/relic*. [in the case of helena, bertram is the sacred *relic* she's after, and by going after bertram, she's acting like a man on a *pilgrimage*]
+- *pilgrimage*: the quest that a man takes for a woman's *sacred place* (holy *grail*, treasure, vagina) [the word is also pilgrim+age -- as in the quest to start a new age, especially if she's solar, like juliet]
+- flood:
+- breach: vagina
+- *cannibal*: someone who eats the *meat* of their same kind (usually of another man)
+- *discourse*: lots of *words*
+- *pray*: handjob.
+- pardon:
+- tears:
+- *sighs*: sounds that one makes during sex.
+- *part*: to spread the *cheeks*
+
 
 present'd
 introduc'd
 eye, oath
 
 ## dualities
-- *churlish* *disposition*: is to have the presence about them of unkempt *words*. to be upset and dissatisfied. [the image here is of the courtier when he's upset (usually about something his *words* caused him); and also when the *fool* is upset about something not being manipulated the way he wants. parolles is a good example]
+- *churlish* *disposition*: is to have the presence about them of unkempt *words*. to be upset and dissatisfied. [the image here is of the courtier when he's upset (usually about something his *words* caused him); and also when the *fool* is upset about something not being manipulated the way he wants. parolles is a good example].
 
 ### 2023-12-30 07:55 - a comment on the "veracity" of my glossary
 
