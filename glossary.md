@@ -106,7 +106,8 @@
 - *shepherd*: guidance for the *sheep*: usually not politically (unless he's in *court*), but instead artistically in the form of *plays*, *drama*, *music*, *movies*, *theatre* (on the battlefield or on the stage); the archetypical *aries*, having been seasoned by the passage of *Time*.
 - *sheep*: children of *aries*
 - *aries*, *mars*: top, and all around great guy. he's definitely an improvement on homer's portrayal of him, that's for sure.
-
+- *creature*: a particularly young girl.
+- grave, tomb:
 
 present'd
 introduc'd
