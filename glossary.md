@@ -130,8 +130,11 @@
 - *sighs*: sounds that one makes during sex.
 - *part*, *parting*: to spread the *cheeks*
 - *meat*: penis.
-- *conquer*: to bring another into submission, usually sexually. refers to war and rape that occurs after battle.
-
+- *conquer*: to bring another into submission, usually sexually. refers to war and rape that occurs after battle. [in the sequence: I *came*,*saw*,*conquered*; submission happens because of the seeing aspect. when the third eye is opened, it's possible to *taint*/*mark* certain symbols with emotion, thereby making symbols (like infedelity, treason, loyalty, etc) feel much better or worse than they actually feel when those symbols/spells are evoked, thereby making those symbols accessible under those emotional states. for example, notice how dirty talk is only permitted in emotional states like lust. this symbolic structure is how one subdues the opponent, keeping self-empowering symbols locked into states of extasy, and associating with feelings of fear, dread, unworthiness, etc., otherwise. another good example of this conquering through symbolic association is this unseen *code* of *conduct* which everyone abides by, and so for example nobody ever has ever dared to write a glossary like this because these definitions are taboo. fortunately I don't perceive the symbolic image (just the conceptual), so I don't feel any fear or trepidation ("what will they think of me") when writing this. since I don't *see*, I can never be *conquered* or subdued symbolically]
+- *taint*: to *mark* something with *words*; the process of ever changing someone after a sexual experience.
+- heart
+- *certainty*: sir+taint(y) - the taint that a man can give something with his *words*
+- *mark*: to *stain* or *taint* someone/something
 
 present'd
 introduc'd
