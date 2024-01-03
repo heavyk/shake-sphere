@@ -106,11 +106,11 @@
 - *shepherd*: guidance for the *sheep*: usually not politically (unless he's in *court*), but instead artistically in the form of *plays*, *drama*, *music*, *movies*, *theatre* (on the battlefield or on the stage); the archetypical *aries*, having been seasoned by the passage of *Time*.
 - *sheep*: children of *aries*
 - *aries*, *mars*: top, and all around great guy. he's definitely an improvement on homer's portrayal of him, that's for sure.
-- *creature*: a particularly young girl.
+- *creature*: a particularly young girl (or boy).
 - *grave*, *tomb*: kinda like a *house* or *court* [but I think it has to do with the age of the *recipient*]. the idea is that the *grave* or *tomb* kills the little man that goes inside of it, unless of course, he's *resurrected*.
 - *resurrected*: after the little death, it takes a period of time before your *highness* can *come again*.
 - *knell*: a *bell*; like a more audible *court*. also has the sense of violently waking up, the lights coming on, or alarm: a harbinger of what is to *come*.
-- *come*: hight of sexual climax and the opening of the eyes. it encapsulates mars perspective of *conquering*: "I *came*, I *saw*, I *overcame*
+- *come*: hight of sexual climax and the opening of the eyes. it encapsulates mars perspective of *conquering*: "I *came*, I *saw*, I *overcame*/*conquered*
 - *bell*: sounds like beautiful, is also a dragon, butt is mostly an instrument for making sound.
 - *read*: to pleasure oneself with a *book*.
 - *ear*: something that *hears* *words*.
@@ -121,14 +121,16 @@
 - *pilgrim*: someone on a journey to acquire a *sacred place/relic*. [in the case of helena, bertram is the sacred *relic* she's after, and by going after bertram, she's acting like a man on a *pilgrimage*]
 - *pilgrimage*: the quest that a man takes for a woman's *sacred place* (holy *grail*, treasure, vagina) [the word is also pilgrim+age -- as in the quest to start a new age, especially if she's solar, like juliet]
 - flood:
-- breach: vagina
-- *cannibal*: someone who eats the *meat* of their same kind (usually of another man)
-- *discourse*: lots of *words*
+- breach: vagina.
+- *cannibal*: someone who eats the *meat* of their same kind (usually of another man).
+- *discourse*: lots of *words*.
 - *pray*: handjob.
 - pardon:
 - tears:
 - *sighs*: sounds that one makes during sex.
-- *part*: to spread the *cheeks*
+- *part*, *parting*: to spread the *cheeks*
+- *meat*: penis.
+- *conquer*: to bring another into submission, usually sexually. refers to war and rape that occurs after battle.
 
 
 present'd
@@ -137,6 +139,9 @@ eye, oath
 
 ## dualities
 - *churlish* *disposition*: is to have the presence about them of unkempt *words*. to be upset and dissatisfied. [the image here is of the courtier when he's upset (usually about something his *words* caused him); and also when the *fool* is upset about something not being manipulated the way he wants. parolles is a good example].
+
+## endings
+- *-et*: smaller version of the word it's connected to: juliet = small julia, boyet = small boy, dulcet = small sweet, etc.
 
 ### 2023-12-30 07:55 - a comment on the "veracity" of my glossary
 
