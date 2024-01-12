@@ -1,0 +1,46 @@
+# romeo-and-juliet
+
+### analysis
+- romeo is clarly the earth
+	"sole monarch of the universal earth"
+- juliet is clearly the sun
+	- "But, soft! what light through yonder window breaks? / It is the east, and Juliet is the sun."
+	- "One fairer than my love! the all-seeing sun"
+- juliet has never been able to actually conseguir getting the earth (romeo) since they were paired
+	- "Ne'er saw her match since first the world begun."
+- capulet (like prospero) looks to represent saturn/Time
+	- since juliet (the sun - 2) is house of capulet, and saturn of the spectral (4), with power to banish someone from astral (6), capulet seems to be secondary rays, enemy to the primary rays: most notably, physical.
+- montague seems to represent physicality, which is why juliet contemplates joining romeo in physical
+	- "Deny thy father and refuse thy name; Or, if thou wilt not, be but sworn my love, And I'll no longer be a Capulet."
+- lady capulet seems to be venus: she wants to set the sun up with her boy paris/mercury
+- the three of them are the classic triad of saturn (not the planet, but the saturnian-system on earth), venus, and mercury 
+	- venus and mercury are moons of the sun (which is why there's so much about which face paris/mercutio shows to the sun)
+	- the arrangement (physically speaking) of the sun being stuck with a prettyboy deadbeat (mercury), and having venus constantly set her boy up with her, is the way that the sun keeps growing larger and more powerful. without constant losers, there's no creation of unwanted, and so therefore no desire. juliet, the sun is constantly faced with the decision of doing what she *should* do (ie, the symbolically correct thing that lady capulet (venus) says to do), or to see instead the form of desire. desire is complementary to physical, whereas symbol is antagonistic to desire.
+		- paris pretends and is scripted to be physical, but he's all script (and therefore subject to fate) and not reactionary like hot spur/headed mars (romeo)
+		- venus writes the script for paris, which sounds like desire, but is not. true desire is chaotic and unscripted (attracted)
+		- both venus and mercury are constant sources of unwanted for the sun. they are what make her bigger and more and more clear about what she wants. when she finally fiugures it out, she doesn't need either.
+		- she wants to get to pure-desire so she can be with romeo, but before she can do that, she's got to go all the way from symbolic death (tragedy), to desire; she does that by stopping to follow what others tell her to do, and to follow her desire. this play is about the sun doing just that, and turns out to be a complete disaster (tragedy) for the symbolic/scripted capulets, and juliet finally gets what she desires (romeo).
+- romeo says that if he goes the banished route, he'll die, but if he leaves (stays only in physical), he'll live
+	- "I must be gone and live, or stay and die."
+- romeo decides to abandon physical and stay in astral to die:
+	- "I take thee at thy word: Call me but love, and I'll be new baptized; Henceforth I never will be Romeo."
+	- the unfortunate "perfect storm" of circumstances that sank their relationship, also sunk the titanic
+	- leaving physical (where attraction/desire is the ruler) was his mistake. saturn/Time rules astral can orchestrate these "perfect storms" of circumstance with ease.
+- juliet claims daylight is really, "northern lights" (geomagnetic storm) from a large solar explosion (CME) thanks to romeo
+	- "Yon light is not day-light, I know it, I: It is some meteor that the sun exhales, To be to thee this night a torch-bearer,
+- you-da-man (man-tu-ya) is the destination of romeo's *pilgrimage*
+	- it also has funny *wordplay* because man-tuya would be "your man"
+- the nurse tells juliet that romeo only exists in physical now, and so therefore because juliet is stuck in astral with mercury, she should just marry the "bridegroom"
+	- "Romeo is banish'd; and all the world to nothing, That he dares ne'er come back to challenge you; Or, if he do, it needs must be by stealth."
+		- romeo could only come back by being born into astral, arriving without any memory of who he is.
+	- "I think it best you married with the county. O, he's a lovely gentleman! [...]"
+		- juliet, notice and pay attention to mercury's *appearance* and the wonderful symbolic *descriptions* he's given, not your desire -- and because of those symbolic descriptions mercury is (calculated to be) a better match/desire for you than romeo.
+- paris/mercury is called the "bridegroom" (ie, the sun is married to mercury -- which is accurate, cause mercury is a moon of the sun)
+	- there is an illusion that paris/mercury is just a pretender, come to take her heart because it's what venus has scripted
+- when bodies are banished, they lose thier physical bodies, and take on an etherial/ghost/astral form.
+	- romeo ceases to exist in astral, for "they killed him"
+	- (including romeo's christ imagery and competition with "the bridegroom") I believe this is the same as when jesus was also banished from astral, and "they killed him"
+- the killing of mercury has cosmic consequences (also the rapier has obvious penetration imagery).
+	- not totally sure yeet if it's talking about the planet or the guy.
+	- in 4.5, the imagery is t
+- juliet says that romeo is her "sheath" then penetrates herself with romeo's *dagger*

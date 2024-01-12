@@ -32,7 +32,7 @@
 - *aquittances*: evidenece of discharge (usually made with *words*)
 - *wars*: shedding of/first blood; particularly in the loss of virginity.
 - *sum*: the payment made after/of consummation (like a dowry)
-
+- suit: 
 - *lion*: the *narrated* strong masculine figure. a well-met gentleman that stands as a conquerer, and prominant male consort (el).
 - *lion* of the *jews*: the narrated *lion* to come: seen in pious heraldry (and elsewhere), as the lion with the tounge sticking out.
 - *tounge*: represents the word of YHWV (narrated God) to become reality (as needed/wanted), and then later to become flesh (the actual conquering king that shows up: I AM [*will*]). God the father (YHVH) speaks the world into existence with *words* (the top-down perspective). God the son/lion (YHVVH), narrates his reality with *words*, just like the father, but narrates the of building the *physic* reality up to God (the *tower*).
@@ -129,12 +129,38 @@
 - tears:
 - *sighs*: sounds that one makes during sex.
 - *part*, *parting*: to spread the *cheeks*
-- *meat*: penis.
+- *meat*: penis. can also be eaten.
 - *conquer*: to bring another into submission, usually sexually. refers to war and rape that occurs after battle. [in the sequence: I *came*,*saw*,*conquered*; submission happens because of the seeing aspect. when the third eye is opened, it's possible to *taint*/*mark* certain symbols with emotion, thereby making symbols (like infedelity, treason, loyalty, etc) feel much better or worse than they actually feel when those symbols/spells are evoked, thereby making those symbols accessible under those emotional states. for example, notice how dirty talk is only permitted in emotional states like lust. this symbolic structure is how one subdues the opponent, keeping self-empowering symbols locked into states of extasy, and associating with feelings of fear, dread, unworthiness, etc., otherwise. another good example of this conquering through symbolic association is this unseen *code* of *conduct* which everyone abides by, and so for example nobody ever has ever dared to write a glossary like this because these definitions are taboo. fortunately I don't perceive the symbolic image (just the conceptual), so I don't feel any fear or trepidation ("what will they think of me") when writing this. since I don't *see*, I can never be *conquered* or subdued symbolically]
 - *taint*: to *mark* something with *words*; the process of ever changing someone after a sexual experience.
 - heart
 - *certainty*: sir+taint(y) - the taint that a man can give something with his *words*
 - *mark*: to *stain* or *taint* someone/something
+- marry:
+- *spits*: something that holds meat
+- *log*: cylindrical *wood*
+- *basket*: a *recepticle* of, or something that holds things like *meat*, *fish*, and *bread*.
+- *bread*: penis. *risen* and *unrisen* bread; also *leavened* and *unleavened* bread.*bread* can also be eaten.
+- *wound*: penetrated flesh, often with blood
+- *sword*, *dagger*, *rapier*: something that penetrates flesh and causes *blood*
+- *scar*: penetration that happened a while ago.
+- *rust*: well worn *metal*, usually a *weapon*. accelerates uned moist conditions.
+- *metal*: stuff *weapons* are made of
+- *weapon*: something like a *dagger*, *sword* or *cannon*
+- *cannon*: *metal* instrument used to send *projectiles* hurling through the air
+- *projectile*: *weapon* discharge
+- *substance*, *matter*: poop. often contrasted with *words*
+- *valiant*: to *stand*
+- moved: to feel strong emotion, often causing one to *stir* or to *stand*
+- stir, stirred:
+- *quarrel*: to fight someone, oftentimes with a *weapon*
+- *tool*: like a *weapon* but less effective at *killing*
+- *kill*: to finish or climax. ie, after a great *discharge* the little *soldier* dies, and lays *hanging*.
+- *back* someone, be *behind*: to be *generous*, *giving*, or *benevolent*
+- *run*: to turn one's *back* in an *engagement* or *quarrel*
+- *benevolent*: literally good or *generous* violence.
+- *challenge*, *duel*: to engage in sexual *conduct*, or to measure *weapons*
+- *verona*: earth, I believe.
+- *ornament*: jizz.
 
 present'd
 introduc'd
