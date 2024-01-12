@@ -2,7 +2,7 @@
 
 ### analysis
 - romeo is clarly the earth
-	"sole monarch of the universal earth"
+	- "sole monarch of the universal earth"
 - juliet is clearly the sun
 	- "But, soft! what light through yonder window breaks? / It is the east, and Juliet is the sun."
 	- "One fairer than my love! the all-seeing sun"
