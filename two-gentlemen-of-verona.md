@@ -1,0 +1,96 @@
+# two-gentlemen-of-verona
+### analysis
+- thurio is a pretty good reflector and he seems pretty honest to me (especially giving up silvia at the end)
+- thurio is said to be a chameleon in that he changes shape to reflect the desires of those around
+	- thurio reflects valentine's anger back to him. [this happens to me a lot where I viscerally feel the emotion of the other person as my own. I normally don't feel conflict with anyone until someone gets angry, then I feel it. neither do I feel intimidation by anyone, until they feel intimidated by me, and so then I feel intimidated by them. I know how the other person feels by subtracting my emotion from way I feel, and that's usually how the other person feels. I think thurio is the same way]
+	- for example when they exchange words about *seeming* a way they are not:
+		- thu: "Seem you that you are not?" (are you pretending to be something you are not?)
+		- val: "Haply I do." (yep, I'm a pretender)
+		- thu: "So do counterfeits." (counterfeits are also pretenders)
+		- val: "So do you." (you too will feel/seem a way you are not, and so now you do too)
+		- thu: "What seem I that I am not?" (OK, fine: what way am I not?)
+		- val: "Wise." (you seem wise, but you're not)
+		- thu: "What instance of the contrary?" (OK, how so?)
+		- val: "Your folly." 
+		- thu: "And how quote you my folly?"
+		- val: "I quote it in your jerkin." (your fashion choices)
+		- thu: "My jerkin is a doublet." (better fashion than you!)
+		- val: "Well, then, I'll double your folly." (I've got to double-down here to wreck him)
+		- thu: "How?" (OK, I still don't understand)
+		(valentine emits anger into thurio because now he has to come up with another explanation.. this is like talking to a kid that answers every question with "why?" or "how?")
+		(thurio receives valentine's emitted anger viscerally and gets visibly upset)
+		- sil: "What, angry, Sir Thurio! do you change colour?"
+		- val: "Give him leave, madam; he is a kind of chameleon." (that's right, I'm in command of the situation)
+		- thu: "That hath more mind to feed on your blood than live in your air." (valentine is a parasite wanting not to be with you for who you are, but for your royal blood)
+- thurio is a *finisher* (excluding the obvious sexual innuendo of valentine making fun of thurio, in the idea of alpha/omega, the emitter is the alpha/starter and someone so easily manipulated by their feelings is the loser/finisher/omega: they always come in last place)
+	- thu: "That hath more mind to feed on your blood than live in your air." (valentine is a parasite wanting not to be with you for who you are, but for your royal blood)
+	- val: "You have said, sir." (you've said that before)
+	- thu: "Ay, sir, and done too, for this time." (I'm done trying to point out your sham for now)
+	- val: "I know it well, sir; you always end ere you begin." (I know you'll try to point it out again, but with all due respect, you always blow your load too early)
+- thurio acquires the skills of the people he's around (like a chameleon) [I'm this way as well. around a person that is very good at a skill I only have minimal knowledge of, I gain thier insight by reflecting them back to theirself]
+	- val: "Yourself, sweet lady [are the giver]; for you gave the fire. Sir Thurio borrows his wit from your ladyship's looks, and spends what he borrows kindly in your company."
+- valentine is repeatedly called silvia's servant [TODO]
+	- sil: "I thank you gentle servant: 'tis very clerkly done."
+	- sil: "Who is that, servant?"
+	- val: "Sweet lady, entertain him for your servant."
+	- sil: "I wait upon his pleasure. Come, Sir Thurio, Go with me. Once more, new servant, welcome:"
+- valentine wants proteus is a fellow-servant to silvia
+	- val: "Mistress, it is: sweet lady, entertain him To be my fellow-servant to your ladyship."
+- julia has a celestial identity
+	- something that has weeds and 20 points to it:
+		- sil: "Gentle Lucetta, fit me with such weeds As may beseem some well-reputed page.
+		- luc: "Why, then, your ladyship must cut your hair."
+		- sil: "No, girl, I'll knit it up in silken strings With twenty odd-conceited true-love knots."
+	- it is strange that being covered in weeds is equated with cutting her hair...
+	- also, that is *dark*
+		- pro: "And Silvia--witness Heaven, that made her fair!--Shows Julia but a swarthy Ethiope."
+	- though she's also equated with a twinkling star: [don't understand this one, as it supposes outside of the solar system]
+		- pro: "At first I did adore a twinkling star, But now I worship a celestial sun."
+	- 20x 1000 oaths (1000 for each point I guess)	
+		- pro: "Fie, fie, unreverend tongue! to call her bad, Whose sovereignty so oft thou hast preferr'd With twenty thousand soul-confirming oaths."
+	- the most likely explanation here is that julia is the earth, but then why is she also a twinkling star? are they in fairy-land in milan?
+- valentine seems to have a mission in milan that has to do with 20 (mil means thousand)
+	- val: "To be in love, where scorn is bought with groans; Coy looks with heart-sore sighs; one fading moment's mirth With twenty watchful, weary, tedious nights:"
+	- spd: "Twenty to one then he is shipp'd already, And I have play'd the sheep in losing him."
+	- val: "Why, lady, Love hath twenty pair of eyes."
+		- Love is being equated with the earth (though thurio points out love is blind)
+	- val: "Not for the world: why, man, she is mine own, And I as rich in having such a jewel As twenty seas, if all their sand were pearl, The water nectar and the rocks pure gold."
+		- this time he's talking about silvia, which he's gone to milan to meet.
+- silvia is the sun
+	- pro: "At first I did adore a twinkling star, But now I worship a celestial sun."
+	- val: "Why, Phaeton,--for thou art Merops' son,--Wilt thou aspire to guide the heavenly car"
+	- val: "What light is light, if Silvia be not seen?"
+- valentine desires to free silvia from the tower.
+	- he writes a note to her (the sun) asking if she wants to burn the earth and go with him
+		- val: "Wilt thou aspire to guide the heavenly car And with thy daring folly burn the world?"
+	- the king *banishes* valentine
+		- the same as romeo, this means being cast out of astral/fairy-land and going to physical
+		- val: "To die is to be banish'd from myself;"
+- valentine has all kinds of bad advise:
+	- val: "
+- valentine is prometheus the phoenix
+	- val: "To die is to be banish'd from myself; And Silvia is myself: banish'd from her Is self from self: a deadly banishment!"
+	- (quoting marlowe's [DQOC](/dido-queen-of-carthage.md)) "Dido. The man that I doe eye where ere I am, Whose amorous face like Pean sparkles fire, When as he buts his beames on Floras bed, Prometheus hath put on Cupids shape, And I must perish in his burning armes: Æneas, O Æneas, quench these flames."
+		- prometheus (+2), the masculine form of the sun (-2) takes on the shape of love/cupid/valentine just the same way that venus does in DQOC, and shrouds himself in the form he chooses, pretends to be the masculine (+1) (love/valentine) aspect of earth (-7)
+
+- what's strange about this play is that there's all kind of confusion
+	- the *dark ethiope lady* earth (-1) in masculine form (+1) is thurio and silvia is a reflection of her
+	- cupid/valentine (+1) is played by the phoenix (+2)
+	- silvia (-7) is the sun (-2)
+	- julia (-2) is the earth (-7)
+	- thurio is the real cupid/valentine (+1) but is playing the phoenix (+2)
+	- proteus/vulcan (-5+) marries julia, the sun -> earth
+	- valentine (+1 -> +2) marries silvia, the earth -> sun
+- the irony of this play is hidden behind the scandal of proteus attempting to force himself on silvia.
+	- this is a trope from the golden ass where base/ground vulcan (-5+) tries to steal mars' (+7) aphrodite/silvia (-7) for himself
+	- everyone notices that valentine (+1 -> +2) gives up silvia (-7 -> -2) to proteus (-5+)
+	- however, the rightful one to receive the earth/silvia/julia (-7 -> -2) is thurio (+1), but he just walks away from her, no problem.
+		- val: "Do not name Silvia thine; if once again, Verona shall not hold thee. Here she stands; Take but possession of her with a touch:"
+		- thu: "Sir Valentine, I care not for her, I; I hold him but a fool that will endanger His body for a girl that loves him not: I claim her not, and therefore she is thine."
+		- interestingly enough, they are in milan, a sort of astral fairy-land; so, if he (thurio) ever comes back to fairy-land, valentine says: if *verona* (earth) cannot hold him anymore [and he goes again to fairy-land], there she is to take posession of.
+			- a similar thing happens in [MSND](/midsummers-night-dream.md) where dimitrius is played by lyssander by night. 
+			- it seems that somehow every time that mars/cupid surpasses his limits, what happens is, he goes off to this sort of fairy-land where cupid is played by the phoenix. [personally, I can attest to this being the case. I'm not sure if it happened in 2000, when I left for spain (2006), or somewhere in 2011, venus (patricia) the sun (raquel) took me for a spin; but I recovered, and in 2012 I surpassed the speed limit and started to go faster and faster (desire goes off to infinity); therefore, I became the maculine aspect of desire because I've passed escape velocity and will never slow down again (unless I die) so I left earth and have been in fairy-land ever since then. here everything is backwards, and prometheus (my brother) takes on my shape and pretends to be me. the inhabitants here are weird, and though eventually I'll be banished (go back to physical earth), it seems they're going to miss me when I "die". they want to keep me here indefinitely, but it's a real problem having an infinity in the equation: undefined results are occurring. eventually I'll go back, and that seems to be scheduled for when I try to seduce the sun. not going to happen, I tell you, so I keep going faster. the phoenix, a 2nd ray being (a spectrum of symbol/narrative to desire) is trying to figure out attraction with symbol, and saturn/time and venus (the capulets) are trying run the world with narrative, but it simply doesn't work having infinity in the equation -- so things get hotter and hotter until eventually everything goes up in flames, the world is burned, and the phoenix then rises from the ashes to establish a new legendary narrative Time, no longer ruled by desire and no more of those pesky reflective folk; everyone's script is written: a new age begins]
+			- normally a mars/cupid (cause mercury/paris never can) who goes faster than is what the present symbolic social system can handle, mars is to be punished for destbilising the system. his punishment is to receive enough resistance from the punishment (whatever it may be), that he slows down, shelves his desires, and settles back into the system. if mars doesn't slow down, he becomes cupid and is assigned to rebuild the saturnian-system (ie, rewrite the narrative).
+				- I do believe this is what happened when ninurta (nin means receptive) turned into gilgamesh, at the dawn of Time: when everything inverted and we became the "universal earth" (the universe now a reflection of us). before this reflection happened, things behaved like they did in fairy-land in real-life: everything is symbolic and calculated, then attracted; and dream-life (what is normally fairy-land) was like real-life (everything is attracted which then symbols align to the attraction). everything was backwards because we were on the inside of earth (eden) looking at the sun (inner earth -1), so the sun is always exactly behind where it appears to be located: so, if looking right at it, its rays are coming from behind, which is *only attraction*, so the effect is backwards; because now the sun (-2) is receptive to narrative, and emissive for attraction. that creates problems because, let's say I want to bring this thing closer to me; and by being emissive it shoots toward me and crashes in, instead of attracts, which creates an orbit/destiny (ie, the source of the end of the ice age). when narrative blocks attraction for long enough, prometheus/phoenix, is summoned to crash, to allow the connection (imagine him as being the one that builds up enough charge for electricity to arc from one conductor to another. once the charge is sufficient, the connection is made, he's no longer needed, and is therefore destroyed). the role that saturn/Time plays in all of this, is to set the *speed limit* (using mercury). right now it's 300km/s, and any faster than that, the one exceeeding the speed limit is put into a sort of fairy-land where saturn/oberon/prospero is king. whatever he says the circumstances on fairy-earth are, they are. he makes the change by setting the narrative; yet, narrative, like old code, eventually rots and falls apart with the changing of time. those who exceed the speed limit are the ones that set the narrative; usually the guy pretending to be the masculine side of earth destroys himself with his own narrative, and takes saturn down with him because he's not pure-desire/attractive, but tries to set the narrative from an emissive/top/commanding way.
+		- the story of cupid being banished from fairy-land, then returning to fairy-land to try and woo the sun is repeated/advanced in [RAJ](/romeo-and-juliet.md):
+			- "Romeo is banish'd; and all the world to nothing, That he dares ne'er come back to challenge you; Or, if he do, it needs must be by stealth."
