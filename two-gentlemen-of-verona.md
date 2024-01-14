@@ -60,6 +60,7 @@
 	- pro: "At first I did adore a twinkling star, But now I worship a celestial sun."
 	- val: "Why, Phaeton,--for thou art Merops' son,--Wilt thou aspire to guide the heavenly car"
 	- val: "What light is light, if Silvia be not seen?"
+	- duk: "To be regarded in her sun-bright eye."
 - valentine desires to free silvia from the tower.
 	- he writes a note to her (the sun) asking if she wants to burn the earth and go with him
 		- val: "Wilt thou aspire to guide the heavenly car And with thy daring folly burn the world?"
@@ -67,30 +68,62 @@
 		- the same as romeo, this means being cast out of astral/fairy-land and going to physical
 		- val: "To die is to be banish'd from myself;"
 - valentine has all kinds of bad advise:
-	- val: "
+	- "Win her with gifts, if she respect not words:"
+	- "A woman sometimes scorns what best contents her. Send her another; never give her o'er; For scorn at first makes after-love the more."
+	- "If she do frown, 'tis not in hate of you, But rather to beget more love in you:"
+	- "Take no repulse, whatever she doth say; For 'get you gone,' she doth not mean 'away!'"
+	- "Flatter and praise, commend, extol their graces; [...] say they have angels' faces."
+	- duk: "That no man hath access by day to her." val: "Why, then, I would resort to her by night."
+- proteus also has all kinds of bad advise:
+	- duk: "What might we do to make the girl forget The love of Valentine and love Sir Thurio?"
+	- pro: "The best way is to slander Valentine With falsehood, cowardice and poor descent, Three things that women highly hold in hate."
+	duk: "Ay, but she'll think that it is spoke in hate."
+	- "Ay, if his enemy deliver it: Therefore it must with circumstance be spoken By one whom she esteemeth as his friend."
 - valentine is prometheus the phoenix
 	- val: "To die is to be banish'd from myself; And Silvia is myself: banish'd from her Is self from self: a deadly banishment!"
 	- (quoting marlowe's [DQOC](/dido-queen-of-carthage.md)) "Dido. The man that I doe eye where ere I am, Whose amorous face like Pean sparkles fire, When as he buts his beames on Floras bed, Prometheus hath put on Cupids shape, And I must perish in his burning armes: Æneas, O Æneas, quench these flames."
 		- prometheus (+2), the masculine form of the sun (-2) takes on the shape of love/cupid/valentine just the same way that venus does in DQOC, and shrouds himself in the form he chooses, pretends to be the masculine (+1) (love/valentine) aspect of earth (-7)
+- there's this thing about how valentine cannot actually be with silvia (the sun), in milan:
+	- pro: "Here if thou stay, thou canst not see thy love; Besides, thy staying will abridge thy life."
+	-
+- silvia gives valentine his own letter back saying pretty much: love yourself, and I'll reflect that back to you. hate yourself and I'll reflect your own self-hatred and anger back to you.
+- speed/mercury equates Love with a chameleon (thurio), and gives valentine some strange adivse:
+	- "Ay, but hearken, sir; though the chameleon Love can feed on the air" (Love is a breatharian?)
+- descriptions of proteus has him in *forbearing* and *giving* roles.
+- valentine, proteus, and silvia are the golden ass triad of mars (+7), vulcan (-5+), and aphrodite (-7)
+- speed tells valentine (+1,+2) that he is mimicing proteus (-5+,+-4) and also a fraud
+	- "Marry, by these special marks: first, you have learned, like Sir Proteus, to wreathe your arms, like a malecontent; [...]"
+	- this makes sense on a number of different levels: because in milan/fairy-land (4) is the narrative (zero-sum equation) version of the ever expanding relational perspective (2) (n*n); and in verona (5) is the receptive concptual aspect of the top of the relational: pure-desire/cupid (1)
+- the duke appears to be playing cupid/Love
+- valentine gets banished from milan as soon as the duke finds out he's trying to steal silvia
+	- what's weird is that silvia seems to be not much interested in thurio
 
-- what's strange about this play is that there's all kind of confusion
-	- the *dark ethiope lady* earth (-1) in masculine form (+1) is thurio and silvia is a reflection of her
-	- cupid/valentine (+1) is played by the phoenix (+2)
-	- silvia (-7) is the sun (-2)
-	- julia (-2) is the earth (-7)
-	- thurio is the real cupid/valentine (+1) but is playing the phoenix (+2)
-	- proteus/vulcan (-5+) marries julia, the sun -> earth
-	- valentine (+1 -> +2) marries silvia, the earth -> sun
+### thoughts
+- what's strange about this play is that there's all kind of confusion in the archetypes.
+	- the *dark ethiope lady* earth (-1) in masculine form (+1) is thurio, and silvia (-7) should also be a reflection of her
+	- the phoenix (+2) is playing cupid (+1) as valentine (+1 -> +2)
+	- the reflection of earth (-7) is playing the sun (-2) as silvia (-7 -> -2)
+	- the sun (-2) is playing the earth (-7) as julia (-2 -> -7)
+	- thurio (+1 -> +2) is the real cupid (+1) but is playing the phoenix (+2), so he marries nobody
+	- proteus normally plays vulcan (-5+) but instead plays saturn (+-4)
+	- proteus (+-4) marries julia (-7): saturn marries earth
+	- valentine (+2) marries silvia (-2): prometheus marries the sun (valentine loves silvia as himself)
+	- thurio (+1) passes silvia off to valentine (+2) so he marries nobody
+	- the only way these archetype transitions make any sense, is if this is taking place *inside* of the earth or in another solar system
 - the irony of this play is hidden behind the scandal of proteus attempting to force himself on silvia.
 	- this is a trope from the golden ass where base/ground vulcan (-5+) tries to steal mars' (+7) aphrodite/silvia (-7) for himself
-	- everyone notices that valentine (+1 -> +2) gives up silvia (-7 -> -2) to proteus (-5+)
+	- everyone notices that valentine (+2) gives up silvia (-2) to proteus (-5+)
+		- "By penitence the Eternal's wrath's appeased: And, that my love may appear plain and free, All that was mine in Silvia I give thee."
 	- however, the rightful one to receive the earth/silvia/julia (-7 -> -2) is thurio (+1), but he just walks away from her, no problem.
 		- val: "Do not name Silvia thine; if once again, Verona shall not hold thee. Here she stands; Take but possession of her with a touch:"
 		- thu: "Sir Valentine, I care not for her, I; I hold him but a fool that will endanger His body for a girl that loves him not: I claim her not, and therefore she is thine."
 		- interestingly enough, they are in milan, a sort of astral fairy-land; so, if he (thurio) ever comes back to fairy-land, valentine says: if *verona* (earth) cannot hold him anymore [and he goes again to fairy-land], there she is to take posession of.
 			- a similar thing happens in [MSND](/midsummers-night-dream.md) where dimitrius is played by lyssander by night. 
 			- it seems that somehow every time that mars/cupid surpasses his limits, what happens is, he goes off to this sort of fairy-land where cupid is played by the phoenix. [personally, I can attest to this being the case. I'm not sure if it happened in 2000, when I left for spain (2006), or somewhere in 2011, venus (patricia) the sun (raquel) took me for a spin; but I recovered, and in 2012 I surpassed the speed limit and started to go faster and faster (desire goes off to infinity); therefore, I became the maculine aspect of desire because I've passed escape velocity and will never slow down again (unless I die) so I left earth and have been in fairy-land ever since then. here everything is backwards, and prometheus (my brother) takes on my shape and pretends to be me. the inhabitants here are weird, and though eventually I'll be banished (go back to physical earth), it seems they're going to miss me when I "die". they want to keep me here indefinitely, but it's a real problem having an infinity in the equation: undefined results are occurring. eventually I'll go back, and that seems to be scheduled for when I try to seduce the sun. not going to happen, I tell you, so I keep going faster. the phoenix, a 2nd ray being (a spectrum of symbol/narrative to desire) is trying to figure out attraction with symbol, and saturn/time and venus (the capulets) are trying run the world with narrative, but it simply doesn't work having infinity in the equation -- so things get hotter and hotter until eventually everything goes up in flames, the world is burned, and the phoenix then rises from the ashes to establish a new legendary narrative Time, no longer ruled by desire and no more of those pesky reflective folk; everyone's script is written: a new age begins]
-			- normally a mars/cupid (cause mercury/paris never can) who goes faster than is what the present symbolic social system can handle, mars is to be punished for destbilising the system. his punishment is to receive enough resistance from the punishment (whatever it may be), that he slows down, shelves his desires, and settles back into the system. if mars doesn't slow down, he becomes cupid and is assigned to rebuild the saturnian-system (ie, rewrite the narrative).
-				- I do believe this is what happened when ninurta (nin means receptive) turned into gilgamesh, at the dawn of Time: when everything inverted and we became the "universal earth" (the universe now a reflection of us). before this reflection happened, things behaved like they did in fairy-land in real-life: everything is symbolic and calculated, then attracted; and dream-life (what is normally fairy-land) was like real-life (everything is attracted which then symbols align to the attraction). everything was backwards because we were on the inside of earth (eden) looking at the sun (inner earth -1), so the sun is always exactly behind where it appears to be located: so, if looking right at it, its rays are coming from behind, which is *only attraction*, so the effect is backwards; because now the sun (-2) is receptive to narrative, and emissive for attraction. that creates problems because, let's say I want to bring this thing closer to me; and by being emissive it shoots toward me and crashes in, instead of attracts, which creates an orbit/destiny (ie, the source of the end of the ice age). when narrative blocks attraction for long enough, prometheus/phoenix, is summoned to crash, to allow the connection (imagine him as being the one that builds up enough charge for electricity to arc from one conductor to another. once the charge is sufficient, the connection is made, he's no longer needed, and is therefore destroyed). the role that saturn/Time plays in all of this, is to set the *speed limit* (using mercury). right now it's 300km/s, and any faster than that, the one exceeeding the speed limit is put into a sort of fairy-land where saturn/oberon/prospero is king. whatever he says the circumstances on fairy-earth are, they are. he makes the change by setting the narrative; yet, narrative, like old code, eventually rots and falls apart with the changing of time. those who exceed the speed limit are the ones that set the narrative; usually the guy pretending to be the masculine side of earth destroys himself with his own narrative, and takes saturn down with him because he's not pure-desire/attractive, but tries to set the narrative from an emissive/top/commanding way.
+				- I do believe this is what happened when ninurta (nin means receptive) turned into gilgamesh at the dawn of Time: when everything inverted and we became the "universal earth" (the universe now a reflection of us). before this reflection happened, things behaved like they did in fairy-land in real-life: everything is symbolic and calculated, then attracted; and dream-life (what is normally fairy-land) was like real-life (everything is attracted which then symbols align to the attraction). everything was backwards because we were on the inside of earth (eden) looking at the sun (inner earth -1), so the sun is always exactly behind where it appears to be located: so, if looking right at it, its rays are coming from behind, which is *only attraction*, so the effect is backwards; because now the sun (-2) is receptive to narrative, and emissive for attraction. that creates problems because, let's say I want to bring this thing closer to me; and by being emissive it shoots toward me and crashes in, instead of attracts, which creates an orbit/destiny (ie, the source of the end of the ice age). when narrative blocks attraction for long enough, prometheus/phoenix, is summoned to crash, to allow the connection (imagine him as being the one that builds up enough charge for electricity to arc from one conductor to another. once the charge is sufficient, the connection is made, he's no longer needed, and is therefore destroyed). the role that saturn/Time plays in all of this, is to set the *speed limit* (using mercury). right now it's 300km/s, and any faster than that, the one exceeeding the speed limit is put into a sort of fairy-land where saturn/oberon/prospero is king. whatever he says the circumstances on fairy-earth are, they are. he makes the change by setting the narrative; yet, narrative, like old code, eventually rots and falls apart with the changing of time. those who exceed the speed limit are the ones that set the narrative; usually the guy pretending to be the masculine side of earth destroys himself with his own narrative, and takes saturn down with him because he's not pure-desire/attractive, but tries to set the narrative from an emissive/top/commanding way.
+			- normally a mars/cupid (cause mercury/paris never can) who goes faster than is what the present symbolic social system can handle, mars is to be punished for destbilising the system. his punishment is to receive enough resistance from the punishment (whatever it may be), that he slows down, shelves his desires, and settles back into the system. if mars doesn't slow down, he becomes cupid and is assigned to rebuild the saturnian-system (ie, rewrite the narrative), whereby he (now being saturn) destroys himself with his narrative, or becomes receptive/attractive instead of emissive. upon self-destruction, mars/vulcan/saturn is cast back to earth where they take on physical form and attract a manifestation of their desire (from emotion instead of symbol). [speaking personally, I *should* have destroyed myself by now with a depressing "I'm not good enough" narrative, or with some kind of lust (that is, want something outside me to make me feel better) like fight, sex, alcohol, drugs, etc; so, I'm kinda like thurio where I'm not gonna fight someone, and can just walk away from a poor reflection of myself: if she likes valentine better than me, great. I say they should be together. I'm not at all looking for royal blood (the calculated "best") like valentine is. those that are here (ie those that run the saturnian-system) have to put up with me until I finally find a way to destroy myself]
 		- the story of cupid being banished from fairy-land, then returning to fairy-land to try and woo the sun is repeated/advanced in [RAJ](/romeo-and-juliet.md):
 			- "Romeo is banish'd; and all the world to nothing, That he dares ne'er come back to challenge you; Or, if he do, it needs must be by stealth."
+- the bad advise that proteus and valentine give to the duke, I believe is a reflection of the social narrative at that time: the things that buttlover men believed about women at the time this play was written.
+- it occurs to me that at the time of the illiad, paris (though I've been equating him with mercury), is probably this same phoenix guy: cupid at that time would be perceived as ultra vain (cause he's pure-desire), so the narrative version of someone that actually likes thierself would be someone like paris; he gets paired with helen/eve/silvia and tries to actually like himself (what silvia is trying to get valentine to do), but it comes off as not-genuine and at everyone else's expense [I know this quite personally where I've lived in spain where there are a bunch of mercurys that think they're so cool and all-that, but they don't avtually like thierselves, so it comes off very disingenuous and vain, cause they have to prove how how highly they think of themselves to others; however, I *actually* like myself and I feel no competition with others, and neither need to prove it. just being me proves it -- or: the product shouldn't need advertising, if it's actually what it is; it is self-desire -ing and -able].
+	- mercury then becomes be the narrative version of the archetype produced by the phoenix (+2) pretending to be cupid (+1)
