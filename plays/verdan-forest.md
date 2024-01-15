@@ -31,3 +31,24 @@ audry: what then?
 jane: I haven't came yet.
 
 in contrast to everyone telling the other girl what she just did, is the girls aren't going to have fixed names as is commonly thought. instead, they'll summon each other conceptually. so if I were to want to engage with someone that behaves like a princess, then I would say, "can you my dear loathsome princess, divine me a cup of tea?" -- and the girl that feels inclined to take on that role will do so -- and if nobody does it, then she can react to it according to her 	dispositon: "so, no princesses then" / "I guess they're all gone" or whatever. (still working on this idea). the reason for this is so that everyone inside of the play is constantly being forced to fulfill the symbolic expectations of the other person -- yet when the girls are by theirselves, they act as individuals: "I want to hold you" "I like the way you feel" etc. the group scenes are good for much disaster, which the girls find funny and the constant mistaking is perfect chaos for nice things to happen. (again, still not sure on this idea... it'll evolve)
+
+### character modes
+
+- I want
+- I like
+- you feel
+- (almost never, to intensify the contrast) I feel
+- you are
+
+the "I" character modes are reserved for intimate situations, and especially nobody ever talks about their feelings (I feel). the reason for this is to intensify the contrast between the conceptual and the symbolic. feelings are only conveyed in stage directions, to ensure that the conversation remains as symbolic as possible
+
+### imagery
+
+I want to frequently contrast soliloquies and narration of lush and luxurious imagery of the forest,--to be starkly contrasted with highly symbolic and superficial dialogue. the reason for this is devious: marlowe and shakespere employs the same technique where they build up a really big image, only to destroy it right afterward with some toilet humour. the reason, I believe is found in chaos magic: build up a big image, then cause a notable distraction so that the mind forgets the thought because of the distraction and therefore doesn't have time to logically/symbolically doubt it -- and if the mind wants to reconjure the image, it has to go back to it in memory, which is conceptual, and so therefore remembers it slightly different than it was first received.
+	btw, this is the same technique that mr-motor uses on me to constantly cause me to forget my good ideas,-- which, for the same reason, the symbolic distraction causes the idea/image to be wrecked and come back at a later time better than it was when it was destroyed
+
+### characters
+
+ana: she's the oldest, and all of the girls descend from her. she's played around and created the in the forest for so much time, most of it is her creation. she likes the running around and having fun, so when she found herself in the forest (she doesn't know, and can't remember how she got there), she was in the form of an adolescent or young adult. she created for a while by herself, but eventually desired to be around others; so, when she got pregnant she was overjoyed. as she gave birth to more girls, a society started to form, which she didn't take much intrest in, so over the years, she's yougered again into the form of a little child. her body now is about that of about a 5yo: she hardly ever wears clothes, and she's usually off doing stuff by herself, or with anyone that will join her. she's the village child, and everyone loves her -- cept when she decides she wants to rework a part of the forest and tears it all out to start over.
+jane:
+audry:
