@@ -17,3 +17,17 @@ during the last 100 seasons or so, they've mostly kept to theirselves, building 
 3. a few times a year, one girl about 15-50yo (depending on the girl, and her perceived age), a girl will randomly get pregnant. they don't know why it happens or what causes it. however lately the last few births have yielded girls that have become less and less interested in the natural life. they want to do new things.
 	- one girl (born 5-10 seasons ago) has decided that she wants to dig into the ground and build a new thing down there (something different from the forest), she imagines fungal caverns of running water and stone architecture with hard edges -- which is quite concerning for some: what if she digs down far enough, she can find a way out of the dome -- and if she does, what will she do? they know the dome extends downward for quite some way, but they're not sure how far, meaning they could be inside of a sphere -- and they can also see that the soil on the other side of the dome is quite sandy and infertile (kinda desert-like)
 	- the random births have always produced a girl in the past, so it's pretty expected that it won't be a boy; they know that boys exist/live in the city, but they've never expected or wanted one to be born. a girl wanting a boy to be born could be a tantalising topic (especially in contrast to the recent births of girls that want to do out of the ordinary things)
+
+### dialoge
+
+I'd like to have the format of giving a stage direction for one girl, then the second girl tells the first girl what she just did. I think this could be a good running joke throughout the play, and the girl which is struggling to follow the interaction syntax should say something like, "I don't want to tell everyone else what they're doing!!".
+the other thing I'm not sure about is how surreal to make the dialogue, and if there should be excessive sexual innuendo. as an example:
+[jane comes running in with a big smile on her face]
+audry: you come bearing gifts!
+jane: nope!
+audry: then what are those?
+jane: gifts.
+audry: what then?
+jane: I haven't came yet.
+
+in contrast to everyone telling the other girl what she just did, is the girls aren't going to have fixed names as is commonly thought. instead, they'll summon each other conceptually. so if I were to want to engage with someone that behaves like a princess, then I would say, "can you my dear loathsome princess, divine me a cup of tea?" -- and the girl that feels inclined to take on that role will do so -- and if nobody does it, then she can react to it according to her 	dispositon: "so, no princesses then" / "I guess they're all gone" or whatever. (still working on this idea). the reason for this is so that everyone inside of the play is constantly being forced to fulfill the symbolic expectations of the other person -- yet when the girls are by theirselves, they act as individuals: "I want to hold you" "I like the way you feel" etc. the group scenes are good for much disaster, which the girls find funny and the constant mistaking is perfect chaos for nice things to happen. (again, still not sure on this idea... it'll evolve)
