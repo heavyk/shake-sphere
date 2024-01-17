@@ -89,7 +89,7 @@ Aged women with swords thrust through their aged
 sides; Kneeling for mercie to a Greekish lad,
 Who with steele Pol-axes dasht out Dians braines.
 I then buckled mine armour, drew out my sword,
-thinking to goe downe: Then with ashie visage,
+thinking to goe downe: When with ashie visage,
 Blewish, suphulcure eyes, and her breast ---
 Furrowd with wounds: all of which made me weepe.
 Thongs at her heeles, by which Achilles horse
