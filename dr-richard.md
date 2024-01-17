@@ -94,6 +94,6 @@ Blewish, suphulcure eyes, and her breast
 Furrowd with wounds: which, of all made me weepe.
 Thongs at her heeles, and by which Achilles horse
 Drew her in triumph through the Greekish Campe,
-Burst from the earth, crying, Æneas flye,
+Burst 4th from the earth, crying, Æneas flye,
 Troy is a fire, the Grecians haue the towne.
 ```
