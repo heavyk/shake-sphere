@@ -91,9 +91,9 @@ Who with steele Pol-axes dasht out Dians braines.
 I then buckled mine armour, drew out my sword,
 thinking to goe downe: With ashie visage,
 Blewish, suphulcure eyes, and her breast
-Furrowd with wounds, which of all made me weepe.
+Furrowd with wounds: which, of all made me weepe.
 Thongs at her heeles, and by which Achilles horse
 Drew her in triumph through the Greekish Campe,
-Burst dear from the earth, crying, Æneas flye,
+Burst from the earth, crying, Æneas flye,
 Troy is a fire, the Grecians haue the towne.
 ```
