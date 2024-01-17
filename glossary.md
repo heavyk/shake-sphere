@@ -167,6 +167,7 @@
 - *mouth*: something that both makes *words* and also receives *words* (depending whether you *listen* with your *ears*, or with your *mouth*)
 - *listen*: to receive someone's *words* (gladly or madly, you decide)
 - *playewrite*, *playright*, *playwright*: the *shepherd*; he puts *words* in the *mouths* of the *sheep*,-- with his *plays*
+- *play*: smoothe or rough *action*, laid out in *words*.
 
 present'd
 introduc'd
