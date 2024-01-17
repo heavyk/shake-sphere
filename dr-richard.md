@@ -84,8 +84,8 @@ there is a solution, but I don't see it quite yet -- which is why I'm just going
 #### 2024-01-17 06:56 - this is a good example
 
 ```
-And with maine force flung on a ring of pikes,
-aged women with swords thrust through their aged
+And with maine force, flung on a ring of pikes:
+Aged women with swords thrust through their aged
 sides; Kneeling for mercie to a Greekish lad,
 Who with steele Pol-axes dasht out Dians braines.
 I then buckled mine armour, drew out my sword,
