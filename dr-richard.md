@@ -93,7 +93,7 @@ thinking to goe downe: With ashie visage,
 Blewish, suphulcure eyes, and her breast
 Furrowd with wounds: which, of all made me weepe.
 Thongs at her heeles, and by which Achilles horse
-Drew her in triumph through the Greekish Campe,
+Drew her in triumph through the Grecian Campe,
 Burst 4th from the earth, crying, Æneas flye:
 Troy is a fire, and the Grecians haue the towne.
 ```
