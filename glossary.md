@@ -163,10 +163,10 @@
 - *ornament*: jizz.
 - *poesie*: the recepive *organ* put into *words*
 - *organ*: a thing that makes sound when you play it just/right. also, it's a *wind* *instrument*. a *bell* is an *organ*, butt a bell is not.
-- *player*: the *playright* puts *words* into their *mouth*
+- *player*: the *playright* puts *words* into their *mouth*. a bodily representation of the *will* of the *gods*
 - *mouth*: something that both makes *words* and also receives *words* (depending whether you *listen* with your *ears*, or with your *mouth*)
 - *listen*: to receive someone's *words* (gladly or madly, you decide)
-- *playewrite*, *playright*, *playwright*: the *shepherd*; he puts *words* in the *mouths* of the *sheep*,-- with his *plays*
+- *playewrite*, *playright*, *playwright*: the *shepherd*; he puts *words* in the *mouths* of the *sheep*,-- with his *plays*. also, brings *heaven* down to *earth*
 - *play*: smoothe or rough *action*, laid out in *words*.
 - *plays*: action plan or scheme. stratagem; strategery: casanova *action*. it's the *reputation* of *mars* the *playwrite*.
 - *reputation*: what a man *contributes* to society, and what he's *known* for. his *contribution* matches his *reputation*: long, slender, massive, etc.
@@ -191,17 +191,27 @@
 - *fat*: *emotion* or *feeling*. can be defined as "good" or "bad" depending on which area of the body it is: juicy, lusty and lucious; or, obscene, grotesque, and vile. (*fat* is more of an emitter of *disposition*, while *muscle* of one's *temperment*)
 - *cheek*: receptive *organs* (eyes, mouths, fields, and courts) are surrounded by fat, usually called *cheeks* or *hills*.
 - *hill*: a natural curve to the *coutryside* (cheeks, buttocks, etc.)
-- *coutryside*, *county*, *corpus* or *body*: (of *work*).
+- *coutryside*, *county*, *corpus* or *body*: (of *work*). the *recipient* of the alchemical process. both receptive and emissive.
 - *body*. *base*, *ground*, *actor* or *player*: that which is being *worked*.
 - *work*: usully a penetrative action performed on the *body* (*plow*, *knit*, *sew*, *sow*, etc.)
 - *sew*: a form of *work* which produces *plants* with *time* (performed in a *field*)
 - *knit*: join two threads together by tying a *knot* [notice how the image has two penetrative *instruments*; unlike *sewing* which has only one]
 - *plow*: to place *seed* into the *ground* (which is *basest* of them all)
-- *ground*: vagina. earth. putting *seed* into it, will produce something with *time*.
+- *ground*: vagina. *earth*. putting *seed* into it, will produce something with *time*.
 - *measurement*: a mental comparison resulting in a *judgement*: usually of length, girth, width, or height.
 - *measure*: *judgement* of a certain *size*.
 - *judgement*: *action* described with *words*, and usually is a precursor to *punishment* *bestowed* on the *offender*
 - *offence*: produced by an *offender* (or someone on the *offence*) which elicits a *judgement*: something that doesn't conform to the *code* of *conduct*
+- *time*: passive *action*: ie, doing nothing produces something. requires a *seed* which autonomously *grows* into a *plant*
+- *nourishment*: usually *food* and *water*/*rain*
+- *rain*: *nourishment* that comes from the sky *gods*: *seamen* cast out of the upper *ocean*, which then *nourishes* the *ground* and causes *plants* to *grow* (heavenly jizz).
+- *water*: ea/enki. divine nourishment which comes onto the *earth*, causing seeds to take root (in the ground) and grow. necessary for all forms of life.
+- *clouds*: manifestation of *emotion* in the sky, which if they're *moved* enough, can *thunder* and *rain*.
+- *tears*: manifestation of *emotion* in the *body*, which is sufficiently *moved*.
+- *sky*: between *earth* and *heaven*. necessary to produce *rain*. (sexual engagement by the *gods*, *play* out in the *shy* as a reflection of the *heavans*)
+- *heaven*: where the *gods* reside and have interplay. where eternal life and celestial beings are found. inspired *players* and *plays* will reflect the movement of the *gods* in *heaven*.
+- *earth*: the universal *body*.
+- *plant*: produced from a *seed*, with the process of *time*. some need *nurture*; some need *nourishment* and some (like *weeds*) don't need any help at all.
 
 present'd
 introduc'd
