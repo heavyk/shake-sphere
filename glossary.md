@@ -161,6 +161,12 @@
 - *challenge*, *duel*: to engage in sexual *conduct*, or to measure *weapons*
 - *verona*: earth, I believe.
 - *ornament*: jizz.
+- *poesie*: the recepive *organ* put into *words*
+- *organ*: a thing that makes sound when you play it just/right. also, it's a *wind* *instrument*. a *bell* is an *organ*, butt a bell is not.
+- *player*: the *playright* puts *words* into their *mouth*
+- *mouth*: something that both makes *words* and also receives *words* (depending whether you *listen* with your *ears*, or with your *mouth*)
+- *listen*: to receive someone's *words* (gladly or madly, you decide)
+- *playewrite*, *playright*, *playwright*: the *shepherd*; he puts *words* in the *mouths* of the *sheep*,-- with his *plays*
 
 present'd
 introduc'd
