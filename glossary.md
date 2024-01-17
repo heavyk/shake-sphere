@@ -168,6 +168,17 @@
 - *listen*: to receive someone's *words* (gladly or madly, you decide)
 - *playewrite*, *playright*, *playwright*: the *shepherd*; he puts *words* in the *mouths* of the *sheep*,-- with his *plays*
 - *play*: smoothe or rough *action*, laid out in *words*.
+- *plays*: action plan or scheme. stratagem; strategery: casanova *action*. it's the *reputation* of *mars* the *playwrite*.
+- *reputation*: what a man *contributes* to society, and what he's *known* for. his *contribution* matches his *reputation*: long, slender, massive, etc.
+- *legacy*: like a *reputation*, though usually leaving a *stain*.
+- *playbook*: symbolic system describing what *actions* to make in what *circumstances*.
+- *canon*: like a *playbook*; which also shoots *projectiles*.
+- *projectile*: a symbolic *discharge* of *words*, which *projuected* into the future, try to predict it.
+- *circumstances*: a *ring* of *words*: of which I have an *opinion* or *stance* about.
+- *opin*, *opinion*: a picture in the mind's *eye* which differs from the image in the carnal *eye*.
+- *stance*: to *stand up* strongly about: to *rise*, instead of passively *sitting* [the image has the sense of *action* trumping *pleasure*]
+- *sit*: something that happens on a *chair* or *couch* [the ambiguity is an imporant part of the image for some reason]
+- *couch*: buttocks.
 
 present'd
 introduc'd
