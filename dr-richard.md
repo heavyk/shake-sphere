@@ -80,3 +80,20 @@ you know, that if m/ situation were to change, my story would change -- and se l
 	this is a very common trope in love: one builds up a narrative version of something (music, dress, appearance, behaviour, etc.) and that version, the other person falls in love with, only to find out it's "not good enough" -- and so they desire for the other person to change, butt that change completely makes them incompatible with the narrative version they fell in love with -- so now they hate their own interpretation of someone else's narrative -- and blame the other person for their own self-hatred.
 so, what that means is, I essentially have to stay in roughly the same environment in which I create the narrative, for the narrative to remain constant. as I evolve and go to new settings, the narrative universe will change, and it'll be harder and harder to render the characters and the world in the same way.
 there is a solution, but I don't see it quite yet -- which is why I'm just going to give up on the idea for now. I can't remain stagnant like that, and at the same time produce a world expanding narrative. it's a self-defeating idea: kinda like the more I love yourself, the more someone will come in and try to get me to love them more than I love yourself, making me no longer love myself (and also hate them, until I realise that everything is always my fault).
+
+#### 2024-01-17 06:56 - this is a good example
+
+```
+And with maine force flung on a ring of pikes,
+aged women with swords thrust through their aged
+sides; Kneeling for mercie to a Greekish lad,
+Who with steele Pol-axes dasht out Dians braines.
+I then buckled mine armour, drew out my sword,
+thinking to goe downe: With ashie visage,
+Blewish, sulphure eyes, and her breast
+Furrowd with wounds, all which made me weepe,
+Thongs at her heeles, by which Achilles horse
+Drew her in triumph through the Greekish Campe,
+Burst from the earth, crying, Æneas flye,
+Troy is a fire, the Grecians haue the towne.
+```
