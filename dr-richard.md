@@ -90,7 +90,7 @@ sides; Kneeling for mercie to a Greekish lad,
 Who with steele Pol-axes dasht out Dians braines.
 I then buckled mine armour, drew out my sword,
 thinking to goe downe: With ashie visage,
-Blewish, sulphure eyes, and her breast
+Blewish, suphulcure eyes, and her breast
 Furrowd with wounds, all which made me weepe,
 Thongs at her heeles, by which Achilles horse
 Drew her in triumph through the Greekish Campe,
