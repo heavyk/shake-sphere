@@ -95,5 +95,5 @@ Furrowd with wounds: which, of all made me weepe.
 Thongs at her heeles, and by which Achilles horse
 Drew her in triumph through the Greekish Campe,
 Burst 4th from the earth, crying, Æneas flye,
-Troy is a fire, the Grecians haue the towne.
+Troy is a fire, and the Grecians haue the towne.
 ```
