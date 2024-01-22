@@ -105,6 +105,58 @@ I'll start with: good night!
 
 kenny
 
+### 2024-01-22 04:56 - arechetype of titania and ophelia
+
+hi again. I felt compelled to watch your 3 things about titania, followed by 3 videos of yours on ophelia. I noticed that they're essebtially the same archetype, and so I wanted to illuminate a little bit on that. they are both of the archetype of venus, oberon/polonius is saturn/Time, and the emitter is mercury/laertes. venus is 3rd ray receptive (-3), which means she takes in symbol (words, actions, and appearance) from her outside world, then she processes it all and makes a judgement on it, outputting symbol again (in the form of words, actions, and appearances).
+so, as an example, let's analyse the "what a noble mind" monologue. my analysis on this is this: gertrude is 7th ray reflectiv (-7), which she's essentially a "strumpet": whenever someone shows her and physical affection, she will reflect it back to them. for an example of that these gertrude types, I'd like to recommend an all-female production on richard 2 (https://youtu.be/djQZoTdg1zA). it's a production that was recorded in a USA women's correctional facility, and they start out by saying that basically all of us have received some kind of physical or sexual abuse in some way, and we reflected it back. gertrude is the same way; so when claudius shows her affection, she can easily "switch sides" to the side of norway and become "disloyal" to his father. certainly she has done this a few times before, as her character is kinda like the "blonde bimbo".
+ophelia, being symbolically reflective is essentially the exact opposite of his mother. what ohpelia does is take in symbol ("suck'd the honey of his music vows") from hamlet and believe what he has to say. that's really great and everything, because he thinks that's what he wants (not a strumpet like his mom), but this is hamlet's undoing. the context for that monologue, he spells it out quite plainly:
+
+I am myself indifferent honest; [...] I am very
+proud, revengeful, ambitious, with more offences at
+my beck than I have thoughts to put them in,
+imagination to give them shape, or time to act them
+in. [...] We are arrant knaves, all; believe none of us.
+
+here he is revealing his own low opinion of himself, so when he has sex with ophelia, she's now receiving all of these *beliefs* (which are also symbolic) of himself, and in a flash reflecting them back to him. all of a sudden now, her body believes something different than her brain (which has been train by his words and music vows), so she's quite conflicted now. she *feels* differently about him now than she used to, and her realisation that his words were just a sham. so, what does hamlet do? he blames her, because she's now turned him into the monster that she now feels him to be (which is dissonance of how she feels aout him in contrast to his appearance and what she used to believe about him)
+
+shakespere likes to make bad examples out of the strumpet (-7) types, and continually shape the venusian types' behaviour and belief, because they're extremely powerful: what they believe about a man dramatically alters his trajectory through time. hamlet is rightful in saying:
+
+I have heard of your paintings too, well enough; God has given you one face, and you make yourselves another:
+(you change your appearance based on what you think I want to see)
+you jig, you amble, and you lisp, and nick-name God's creatures, and make your wantonness your ignorance.
+(you're unintelligent and silly, naively blinded by your own calculated desires of what you think you want)
+Go to, I'll no more on't; it hath made me mad.
+(it's your fault you made me manifet my own beliefs about myself)
+
+I had one such relationship in my past in which I found my ophelia, and I subsequently manifested every thing that she believed I was. around her I would behave differently based on what she expected from someone that appears like I do, which was bad -- but it was also really good when she believed in me, too; so I really do feel hamlet's pain on this one. hamlet would be far better off with a woman like gertrude, if he could not care that she's a strumpet type. hamlet, like me in that past era created all of his own problems for himself based on his own *belief*. he's a mars (+7) type, so he's got the "Eye of Mars": the ghost is just an image coming from his own mind manifesting into 3d space to tell him what he believes: these images that appear on the retina of the eye are like dreams, where they are real and can be interacted with, but they're caused "In my mind's eye, Horatio".
+
+it's a very interesting thing these venus types because they're constantly creating their own image for theirselves based on what they believe about theirselves, but the effect that they have is to cause a person to actually become what he thinks he is. hamlet obviously failed the test. so what I've noticed is that these venusian types are constantly paired with saturnian (+-4) and mercury types (scripted +7), because she's a complete disaster for the mars types (reactionary +7). this I believe is the origin of the story of where "cupid" comes from; basically when mars and venus actually have a successful pairing (I have a lot to say about that but for another time). cupid has all of the features of both mars and venus, and so is therefore driven, not by a script, like venus and mercury are, but by *desire* (*attraction*).
+
+cupid, like venus with anything she believes, can cause something or someone to become attractive, just by finding it/them attractive also. as an example, I posit that the hamlet play is not a tragedy at all, and instead, when viewed with the right eyes (one's of desire), actually tells a different story. I concur with your analysis of the speech, but I'd like to illuminate this speech from the perspective of desire:
+
+O, what a noble mind is here o'erthrown!
+The courtier's, soldier's, scholar's, eye, tongue, sword;
+(courtier's eye is the abitious one seeing what he wants to take advantage of. the soldier is mars and the tounge makes words: commandments, but also words are expulsions of the *will*, a scholar is one that likes books, and the sword is a penetrating instrument)
+The expectancy and rose of the fair state,
+(what you said, but triple meaning with the tudor state, and the rose being sphinctor/vulva -- so imagine that "expecting something")
+The glass of fashion and the mould of form,
+The observed of all observers, quite, quite down!
+(what you said)
+And I, of ladies most deject and wretched,
+(I'm to be ashamed because of being tricked into believing someone is the way they *appear*)
+That suck'd the honey of his music vows,
+(what you said)
+Now see that noble and most sovereign reason,
+Like sweet bells jangled, out of tune and harsh;
+(these two lines sum up the whole speech in a single image: here is this powerful shaft; the reason for her desire -- the this magnificent image of a wonderful person: "The glass of fashion and the mould of form", contrasted with these unsightly balls hanging down: how could something so magestic and powerful come with such an unsightly appendage (his own beliefs about himself: "I am very proud, revengeful, ambitious, with more offences at my beck than I have thoughts to put them in"))
+That unmatch'd form and feature of blown youth Blasted with ecstasy:
+(his amazing body blowing the minds of youth with incredible ecstasy -- the image here is of a powerful sexual encounters, likely of her own, but it's unclear whether it's of others; nevertheless, right before climax, there is a but of a lull, where things calm down for a moment. that's the previous lines about the balls contrast, which is the flashes in her eyes about what she believes about him, right before the tremendous acceleration into climax)
+O, woe is me,
+("O" here here clearly a powerful climax. you talk about how it's a gutteral feeling. it's a *groan*, and not a *sigh* -- THEN:)
+To have seen what I have seen, see what I see!
+(her 3rd eye opens and she has the "kundalini awakening". when she sees like this, that's what's caused all of hamlet's beliefs about himself (the dissonant balls) to become a reality. she's fully uncovered him and unmasked him -- which can be a good thing, when he is what she thinks he is; ie, once he's "proven himself")
+
+ophelia, in this speech recounts in graphic detain the experience which caused her to see through hamlet's appearance and see him for who she *reasons* him to be. bye for now! kenny
 
 silvius
 redo premise
