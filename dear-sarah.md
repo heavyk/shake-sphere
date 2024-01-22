@@ -90,5 +90,21 @@ I do not believe that I am the first appearance of such a mars on this planet (a
 	my belief is that jesus actally made it through, which is what caused the separation that I talked about previously, and the result (from the perspective of time) is that he also died -- but that was because his mix of desires and fears contained more desire than fear, so when he saw those come to pass, it wasn't such a big deal.
 I'm approaching the time in m/ life now where I'm beginning to approach a speed where my desires and fears are all starting to become reality, and that's happening, not because of a girl which super-accelerated me, (honestly a little bit of drugs, which is true -- but I think that's happened more as a reflection of people's impatience, cause they don't want me to take the extra few years to get to this speed naturally), but instead because of m/ percetion (the super duper graphics that everyone is using to feel good), which means that the millions of people that are connected to me and using my form of perception will start to experience a similar thing. it's going to be a bumpy ride up ahaed as these guys start to manifest all of their fears. I've taken the "death of mars" experience and outputted it to everyone connected to me, as I'm essentially that young girl which is causing mars to feel extra good, and create reality. no quantity of narrative will be able to overcome attraction, because it'll always be the most unexpected worst/best thing (ie, most feared or most desired thing).
 
+### 2024-01-21 19:54 - how's this?
+
+hi sarah, I don't know what to say
+maybe you do. maybe you don't
+and that's OK too. I've written
+to you a fair bit; but you don't
+know that yet,-- or do you? I don't
+know that yet. if you were to meet
+me, do you think we'd get along?
+I can talk about anything; what
+would you have me write? if	anything
+I'll start with: good night!
+
+kenny
+
+
 silvius
 redo premise
