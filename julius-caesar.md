@@ -7,7 +7,7 @@
 	- "I grant I am a woman; but withal A woman well-reputed, Cato's daughter"
 - metellius cimber requests the repeal of the banishment of his brother "publius cimber"
 	- cimber apparently means "soldier" -- so his brother is the "soldier of the public"
-	- metellius is a play on words, which means "of metal" -- so, "soldier of metal"
+	- metellius is a play on words, which means "of metal" -- so, "soldier of metal" (ie, a jupiter (+3), mars/mercury (+7), or prometheus (+2))
 - due to the imagery in the beginning of the play, this is signaling that the public soldier has been banished from astral, and brutus along with cassius tries to ask caesar to repeal the baishment, but caesar says that he cannot alter the decisions made from jupiter
 	- "The skies are painted with unnumber'd sparks, They are all fire and every one doth shine,"
 	- "Hence! wilt thou lift up Olympus?"
@@ -21,3 +21,16 @@
 		- though he requests for publius' banishment to be repealed, here he states that by himself remaining constant (ie, the ruler of the age), publius must remain banished.
 - cassius is the destroyer of the previous power structure allowing for the new one to come in
 	- this entire play (along with many of shakespere's works) is about taking down the powerful mars figure (richard 2, richard 3), and putting a vulcan into power instead (henrys, brutus, james, etc).
+		- cassius is probably depicted so poorly is because of his relation to epicurianism -- which shakespere does not like:
+			- "Men so disorder'd, so debosh'd, and bold That this our court, infected with their manners, Shows like a riotous inn. Epicurism and lust Make it more like a tavern or a brothel Than a grac'd palace." (macbeth)
+			- cassius at the end of the play has a change of heart:
+			- "You know that I held Epicurus strong And his opinion: now I change my mind, And partly credit things that do presage."
+		- I resonate a fair bit with cassius (cause without even thinking too much about it, I often incite others to doubt their convictions of their lovers, which often causes strife -- what's happening though is I manifest their fears into suspect words and actions -- and I feel that cassius is palying a similar role here to brutus). I can easily have seen myself playing his part in setting a new world order into motion. the funny thing about cassius (which his bust looks pretty normal) is depicted by shakespere to be somewhat of a male prostitute using his body to sway others:
+			- "Then, Brutus, I have much mistook your passion; By means whereof this breast of mine hath buried Thoughts of great value, worthy cogitations."
+			- "And since you know you cannot see yourself So well as by reflection, I, your glass, Will modestly discover to yourself That of yourself which you yet know not of."
+			- "Let me tell you, Cassius, you yourself Are much condemn'd to have an itching palm; To sell and mart your offices for gold To undeservers."
+			- "There is my dagger, And here my naked breast; within, a heart Dearer than Plutus' mine, richer than gold: If that thou be'st a Roman, take it forth; I, that denied thee gold, will give my heart: Strike, as thou didst at Caesar;"
+			- "Give me thy hand, Messala: Be thou my witness that against my will, As Pompey was, am I compell'd to set Upon one battle all our liberties."
+			- now, whether he was so pursuasive with his body, or it's an exaggeration of his epicurianism, we can't say for sure. [I do know that me thing of telling others to "do what they feel/want to do", is often met with a lot of scorn and hatred by those that do only the stuff they need to do; and expect that in the future I'll be portrayed quite as a bawd or male prostitute, seducing and manipulating -- not because it's what I do, but because I'm associated with hedonism and improper behaviour]
+		- one of the conflicts of this play comes with the difficulty that brutus will not love cassius as he wants him to. they both want to be the receiver of the other's grief. though they work it out near the end, and have a good parting
+			- C: "Do you confess so much? Give me your hand." B: "And my heart too."

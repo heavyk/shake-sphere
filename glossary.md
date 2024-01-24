@@ -3,7 +3,7 @@
 - *base*: of a *quality* in a range, the lowest or most undesirable/unwanted one.
 - *town*: a busy vagina; lots of residents (hymen is god of every *town*. hymen peoples every *town*).
 - hymen's *bands*: wedding ring, but also refers to loss of virginity (her ring now broken, she wears on her finger)
-- *field*: vagina. before it's a *town*, it's a *field*.
+- *field*: vagina. before it's a *town*, it's a *field*. for men, it's where the *battle* is fought.
 - *lodging*: to enter into something (*town*, *field*, etc).
 - *court*: hole; particularly one of nobility.
 - *book*: the valley beween the cheeks.
@@ -13,7 +13,7 @@
 - *bottom*: [not totally sure, but the sense is] someone that nneds *court* punishment for egregious behaviour.
 - *land*: [not sure yet]
 - *welcomed*: well comed. climax of sexual intimacy.
-- *strumpet*: one of those 7th ray reflectors where with a little physical reflection, they'll return it. easy to pursuade with a physical contact. (looked down upon, cause these women are not loyal)
+- *strumpet*: one of those 7th ray reflectors, where with a little physical reflection, they'll return it. easy to pursuade with a physical contact. (looked down upon, cause these women are not loyal)
 - *bawd*: [not sure, but I think it's] pretty much the same as a *strumpet*, but in male form (like mercutio 7th ray, dull and narrated, not reflective)
 - *quality*: referring to a *temperment* or *disposition*, but often referrs instead to physical endowment, instead.
 
@@ -144,7 +144,7 @@
 - *sword*, *dagger*, *rapier*: something that penetrates flesh and causes *blood*
 - *scar*: penetration that happened a while ago.
 - *rust*: well worn *metal*, usually a *weapon*. accelerates uned moist conditions.
-- *metal*: stuff *weapons* are made of
+- *metal*: stuff *weapons* are made of. also, a *soldier*'s resiliance or fortitude.
 - *weapon*: something like a *dagger*, *sword* or *cannon*
 - *cannon*: *metal* instrument used to send *projectiles* hurling through the air
 - *projectile*: *weapon* discharge
