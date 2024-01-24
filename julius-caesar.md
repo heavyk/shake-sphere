@@ -32,5 +32,12 @@
 			- "There is my dagger, And here my naked breast; within, a heart Dearer than Plutus' mine, richer than gold: If that thou be'st a Roman, take it forth; I, that denied thee gold, will give my heart: Strike, as thou didst at Caesar;"
 			- "Give me thy hand, Messala: Be thou my witness that against my will, As Pompey was, am I compell'd to set Upon one battle all our liberties."
 			- now, whether he was so pursuasive with his body, or it's an exaggeration of his epicurianism, we can't say for sure. [I do know that me thing of telling others to "do what they feel/want to do", is often met with a lot of scorn and hatred by those that do only the stuff they need to do; and expect that in the future I'll be portrayed quite as a bawd or male prostitute, seducing and manipulating -- not because it's what I do, but because I'm associated with hedonism and improper behaviour]
-		- one of the conflicts of this play comes with the difficulty that brutus will not love cassius as he wants him to. they both want to be the receiver of the other's grief. though they work it out near the end, and have a good parting
+		- one of the conflicts of this play comes with the difficulty that brutus will not love cassius as he wants him to. they both want to be the receiver of the other's grief; though they work it out near the end, and have a good parting
 			- C: "Do you confess so much? Give me your hand." B: "And my heart too."
+			- "For ever, and for ever, farewell, Brutus! If we do meet again, we'll smile indeed; If not, 'tis true this parting was well made."
+	- turns our that brutus kills himself at the end, almost as if to reject cassius' proclamation that he'll be next empoeror
+		- "No, Cassius, no: think not, thou noble Roman, That ever Brutus will go bound to Rome; He bears too great a mind. But this same day Must end that work the ides of March begun; And whether we shall meet again I know not."
+	- in the beginning of the play, brutus has to be convinced by cassius that he's good enough for the position
+		- "And it is very much lamented, Brutus, That you have no such mirrors as will turn Your hidden worthiness into your eye,"
+		- "The fault, dear Brutus, is not in our stars, But in ourselves, that we are underlings. Brutus and Caesar: what should be in that 'Caesar'? Why should that name be sounded more than yours? Write them together, yours is as fair a name; Sound them, it doth become the mouth as well;"
+	- therefore, the reason why he can't accept the position in rome is prolly cause he still seems to not believe he's good enough (prolly cause cassius who loved him and told him he's good enough, is now dead)
