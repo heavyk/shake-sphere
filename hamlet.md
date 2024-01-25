@@ -1,4 +1,27 @@
 # hamlet
+## analysis
+- the ghost's apparition
+	- horatio thinks it's just thier fantasy:
+		- "Horatio says 'tis but our fantasy, And will not let belief take hold of him"
+	- bernardo thinks it's from a supernova:
+		- "Last night of all, When yond same star that's westward from the pole Had made his course to illume that part of heaven Where now it burns, Marcellus and myself, The bell then beating one,--"
+	- horatio then links it to a time of high solar output similar to the time around the assination of julius caesar (but still an apparition in the mind's eye) -- he is of course connecting old hamlet and julius caesar
+		- "A mote it is to trouble the mind's eye. In the most high and palmy state of Rome, A little ere the mightiest Julius fell, The graves stood tenantless and the sheeted dead Did squeak and gibber in the Roman streets: As stars with trains of fire and dews of blood, Disasters in the sun; and the moist star Upon whose influence Neptune's empire stands Was sick almost to doomsday with eclipse:"
+	- the ghost seems to correlate strongly with gay sex
+		- "I'll cross it, though it blast me. Stay, illusion! If thou hast any sound, or use of voice, Speak to me: If there be any good thing to be done, That may to thee do ease and grace to me, Speak to me: [Cock crows]"
+		- "It faded on the crowing of the cock."
+		- ham: "Hold you the watch to-night?" mar/ber: "We do, my lord." ham: "Arm'd, say you?" mar/ber: "Arm'd, my lord." ham: "From top to toe?" mar/ber: "My lord, from head to foot."
+	- the ghost is described as a penis
+		- "yet once methought It lifted up its head and did address Itself to motion, like as it would speak; But even then the morning cock crew loud, And at the sound it shrunk in haste away, And vanish'd from our sight."
+		- ham: "Very like, very like. Stay'd it long?" hor: "While one with moderate haste might tell a hundred." mar/ber: "Longer, longer." hor: "Not when I saw't."
+		- ham: "His beard was grizzled--no?" hor: "It was, as I have seen it in his life, A sable silver'd."
+	- there is similarity between the ghost and God commanding moses to speak to the rock for water, but instead, strikes it
+		- mar: "Shall I strike at it with my partisan?" hor: "Do, if it will not stand." ber/hor/mar: "'Tis here!" mar: "We do it wrong, being so majestical, To offer it the show of violence;"
+	- therefore, I must conclude that energies were higher, and whether that's coming from a supernova or from the sun, it seems to have the effect (especially during gay sex) of allowing astral to blend with the physical [in my letters to dr-robyn, I conclude that this is precisely the way that the jesus story was created (by titus). these apparitions can speak and interact with a person quite convincingly, even though they're just (astral) apparitions of the mind's eye. not having experienced this too often myself, I can't say with much certainty of it's propeerties, but the way it's done is to summon the feeling/concept of the person/thing with belief or strong emotion (like a sexual experience); then, that concept appears to everyone seeing/hearing it as a translation of their own mind's recognition of that concept in the form of sound, sensation, touch, visuals, etc.]
+- hamblet confuses himself with horatio
+	- hor: "Hail to your lordship!" ham: "I am glad to see you well: Horatio,--or I do forget myself." hor: "The same, my lord, and your poor servant ever." ham: "Sir, my good friend; I'll change that name with you:"
+- marcellus and bernardo are separate at first, but then when talking to hamlet about the watch, they become combined.
+- marcellus and horatio are separate at first, but then after hamlet sees the ghost, they combine "within"
 
 ### 2023-10-20 04:17 - the tragic woman
 
