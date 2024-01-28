@@ -23,6 +23,8 @@
 - marcellus and bernardo are separate at first, but then when talking to hamlet about the watch, they become combined.
 - marcellus and horatio are separate at first, but then after hamlet sees the ghost, they combine "within"
 
+- polonius gets slain by brutus/hamlet
+
 ### 2023-10-20 04:17 - the tragic woman
 
 I noticed that the centre of hamlet's grief is that he's heartbroken over his mom's *disloyalty*, and this was common for XX women back in the time, because she's just mirroring claudio instead of his father now. hamlet is all bent out of shape because he's tied up in this mutual-back-scratching thing where you can *only* scrath the backs of non-enemies. this, was a common trope amongst the aryan warriers, because they would constantly see these XX women turn to whomever the next invader is.
