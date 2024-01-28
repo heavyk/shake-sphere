@@ -264,6 +264,14 @@ I believe that understanding how to shroud our inner (conceptual) self with that
 
 OK, I'm out. I'll continue monologuing here. if you'd love to answer those questions, that'd be great, but if not, that's OK too. like I said, the answers *will* find me, so don't feel any pressure or anything. kenny!
 
+#### 2024-01-28 10:52 - why I don't like to reread
+
+in the commit message, I expressed my dislike to reread. the first time I wrote the email (yesterday), I walked away with a sort of euphoria. the next time (this morning) I felt like I'd done it a little better, but I didn't feel great about the message (it felt OK). by the third time, I concludeed with "I think it's good enough..." -- a very unenthusiastic culmination of ideas, where it went from being the latest of my insights of the solar perspective of concepts (top-down - 2) vs the earth perspective of concepts (bottom-up - 5) -- to now, "well, I guess it's good enough". I had planned to send it right after this, but now after all of the editing, I don't really feel so good about the message. I prolly won't send it, and maybe try to see if I can rewrite it in verse. also, I wanted to integrate a bunch of concepts I got from reading her blog, her cheub face, and her video on cressida. 
+
+> I think it's good enough...
+>
+> the changes are vast, and it serves as a good example as to why I dislike rereading.
+> why? because by the second or third time, I don't feel nearly as passionate about what I wrote, and usually feel much worse about it... I'll explain
 
 silvius
 redo premise
