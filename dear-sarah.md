@@ -415,7 +415,11 @@ so, I have really two ways I can go here:
 2. realise my mistake and just go back to centre-perspective again (return to neurologist)
 3. be pure-desire and hold out till the very very end (prometheus++: nothing is good enough)
 I don't really know what one I want to do more. in some ways, I'm destined to be prometheus-like in that I'll take a nosedive. it's built into my nature to do that, and I don't mind taking the whole planet down with me, because it'll all work out fine. I also have that whole section I wrote about becoming-epimetheus -- because I get the centre-perspective now: everything inside of a single coherent system is quite a nice way to live. a sort of utopia. when the rules are defined and easy to follow, then things thrive really a lot. however, when the rules are unknowns, or not logical, then it fails. in a lot of ways, I'm sort pre-supposed that I'm going to build such a utopia: a symbolic system where the rules are easy to follow, and no real strain on life. that's all quite possible in the physical layer, which is a symbolic system.
-	you know, on a kinda related note to that, (brb)
+	you know, on a kinda related note to that, (brb 15:41) so let's just assume (for a moment as a mental experiment) that I am on pluto, and that pluto has been designed to be a sort of mini-earth, where all the same stuff on earth happens here, in a symbolically similar way (2nd ray perspective). it makes sense that it'll become its own galaxy once it gets going (mini-earth as the (power outside the nucleus)). so one kenny is here (pluto) and will become the othello of that galaxy, and then there's the other guy that wants to do flat-earth in physical, making one side 1-2-5-7, and the other 3-4-6-(8-9-10-11) where the-city becomes the extra 8-11 dimensions at the end there. (I'll try to find a suitable muse to talk about that one) anyway, that's all really cool, and I think that I would want the kenny doing the galaxy to be like as many people as want to go through that perspective. it'll be a group-personality in a different body.
+
+### 2024-02-03 15:49 - symbolic mars and mercury
+
+about that -- and it's probably what I really want to be writing you about is that I could see the other day how the new mars is a sort 
 
 ### silvius
 ### redo premise
