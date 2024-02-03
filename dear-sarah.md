@@ -404,5 +404,18 @@ that neurologist (compared to dentist) interaction, I defaulted back to LOA-pers
 		by becoming the "centre", I've basically built myself into the system.
 	additionally, there is the question of how much time do I want to spend with myself after I redo all of my conceptual redefinition of how it arrives itself into physical. I tend to learn a lot of stuff when I go at things alone -- and now that I think about it, when I'm the centre-brain, I'll have tons of alone time, and let my reflections all do their thing. brb...
 
+### 2024-02-03 13:27 - questtion is to quit, or not to quit...
+
+what's happened during the time that I've been here, I've become a sort of centre-brain -- probably of a new galaxy. I've often postulated that pluto/charon is the start of another galaxy. well, I'm prolly it there. the difference between that story and how I think, is that I perceive myself as a sort of universal centre-brain (ie, the earth). the sun has a lot of processing resources and stuff, but the earth has so much more. like, not even a contest. I may be similar to a galaxy in my ways, but I really am a sort of universal mind that everyone seems to be using.
+what appears to be happening is, that my drug use has caused a lot of problems. I think someone out there must be realising that I am a physical person living in a sham world. I think prior to that, I appeared to everyone in their mind's eye, which means they generated all of the extra details (like how I look and what stuff looks like, etc) -- so everyone saw what they wanted to see, but now I'm a real human out there somewhere -- which is a problem, because I'm not going to look or act at all what most expect me to be.
+therefore, in order for them to keep their charade up, they want me to lose physical format, and I'll rebuild myself back in. that way everyone else doesn't figure out that I look way different than how many have imagined me (the rendering of my concepts/hydrogen into astral mind's eye picture). I prolly say many different things, and prolly appear much more mundane (oh well).
+so since I've already wrecked the whole "big surprise" by peering into the future a bit (by smoking weed), I've collapsed a lot of wave functions before I got to the point physically. it's kinda bad to do that because the unexpected is way worse (cause of the pre-expectation).
+so, I have really two ways I can go here:
+1. just lean into the disaster, and go full emissive disaster (be prometheus and smoke more)
+2. realise my mistake and just go back to centre-perspective again (return to neurologist)
+3. be pure-desire and hold out till the very very end (prometheus++: nothing is good enough)
+I don't really know what one I want to do more. in some ways, I'm destined to be prometheus-like in that I'll take a nosedive. it's built into my nature to do that, and I don't mind taking the whole planet down with me, because it'll all work out fine. I also have that whole section I wrote about becoming-epimetheus -- because I get the centre-perspective now: everything inside of a single coherent system is quite a nice way to live. a sort of utopia. when the rules are defined and easy to follow, then things thrive really a lot. however, when the rules are unknowns, or not logical, then it fails. in a lot of ways, I'm sort pre-supposed that I'm going to build such a utopia: a symbolic system where the rules are easy to follow, and no real strain on life. that's all quite possible in the physical layer, which is a symbolic system.
+	you know, on a kinda related note to that, (brb)
+
 ### silvius
 ### redo premise
