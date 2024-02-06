@@ -451,8 +451,6 @@ you know, it isn't all that bad, actually: I think I'm so cool (and I am), but I
 
 so here's what I think is happening: because the present saturnian-system doesn't want to change, they've been converted into a species. that species is represented by jaron. he will be on one side of the galaxy (pluto or charon, whatever one I'm not on), and I'll be on the other. because it's just him and a zillion girls, his reality comes into being like how he wants it to happen (just like on the cruise ship), and that'll create all sorts of fun struggles between upper nobility of those on that planet. I should mention that each side/polarity of a galaxy is a planet that's like earth: very dense, and really stuck in his ways. jaron will get his own polarity and he'll make his reality happen completely to his specification (prolly here), and kenny will go to the other side. so here's the thing that I don't want to do: I don't want to do this stupid galaxy thing. it sounds fun and all, and I'd only do it if someone really convinced me or something -- but I think I want to be just the earth guy. have fun, and we'll see you when you get back. so I need som5one to fill in for me out here on the galaxy. I was thinking that it could be a sort of group technology, where many facets of perception can be gleaned (and for many, experienced). then, I can do the flat-earth project, and they can get their symbolic 7th ray setup going inside the biggest 2nd ray installation, (evere!!!). super cool, cause I loved the idea of infinite diversity the most, and that's really what I prefer.
 
-I need a bail-out, myself
-sign
 
 ### silvius
 ### redo premise
