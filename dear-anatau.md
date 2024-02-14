@@ -24,4 +24,8 @@ the rest of it all you never will
 see so just consider me the recipient
 of everytheing invisible. just put the
 blame on me, on the loudest thing nobody
-has ever heard now
+has ever heard; now. I exist in the fastest
+part of the universe: the farthest part out
+the stuff nobody wants. there are preferences
+theough which everyone has a slightly less than
+black mirror, dull in some aspect.
