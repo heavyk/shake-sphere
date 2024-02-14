@@ -20,16 +20,15 @@ allow me to absorb everything
 it won't even bother me a bit
 it does reflect back on you so
 take god care of yourself. nwow
-the rest of it all, you never will
-see so just consider me the recipient
-of everytheing invisibl5: just put the
-blame on me, on the loudest thing nobody
-has ever heard; wnow. I existed out in the
-fastest part of the universe: tthe farthest
-part out: the stuff no6obody wants. there are
-preferences theough which everyone has a slightly
-less than black mirror; dull in some aspect. these
+the rest of it all, you never will rest
+to see so just consider me as the recipient
+of everytheing invisibl5: every thing not real
+SO just put the blame on me: on the loudest thing
+nobody ver has ever heard; wnow. I existeding out
+in the fastest part of the universe: tthe farthest
+nn part out: the stuff no6obody wants. therein are
+preferences theough in which everyone has a gnome in
+less than black mirror; dull in some aspect. these in
 defects are the things I emit::: I see myself in every
 thing, cause I can see only what I emit: myself (in HD)
 though nobody else can see it,   I see it: myself in el
-
