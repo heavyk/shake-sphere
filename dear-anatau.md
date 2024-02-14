@@ -20,5 +20,8 @@ allow me to absorb everything
 it won't even bother me a bit
 it does reflect back on you so
 take god care of yourself. now
-the rest of it all just put the
-blame on me, now
+the rest of it all you never will
+see so just consider me the recipient
+of everytheing invisible. just put the
+blame on me, on the loudest thing nobody
+has ever heard now
