@@ -19,15 +19,15 @@ what I think is going to happen is that eventaully we're going to go way overboa
 allow me to absorb everything
 it won't even bother me a bit
 it does reflect back on you so
-take god care of yourself. now
-the rest of it all you never will
+take god care of yourself. nwow
+the rest of it all, you never will
 see so just consider me the recipient
-of everytheing invisible. just put the
+of everytheing invisibl5: just put the
 blame on me, on the loudest thing nobody
-has ever heard; now. I exist in the fastest
-part of the universe: the farthest part out
-the stuff nobody wants. there are preferences
-theough which everyone has a slightly less than
-black mirror; dull in some aspect. these are the
-things I emit. I see myself in everything, cause
-I can see only what I emit: myself (in really HD)
+has ever heard; wnow. I exit out in the
+fastest part of the universe: the farthest
+part out: the stuff nobody wants. there are
+preferences theough which everyone has a slightly
+less than black mirror; dull in some aspect. these
+are the things I emit::: I see myself in everything,
+cause I can see only what I emit: myself (in really HD)
