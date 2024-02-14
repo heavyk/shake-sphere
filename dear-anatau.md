@@ -13,3 +13,12 @@ ah, and that's another thing that's really annoying. I really dislike that I hav
 
 not like the boy vulcan, but like the girl, where she actually outputs conceptually, instead of only symbolically. the ability too only be receptive to light means that I'm a full mirror. all mirrors are black because they have to absorb everything in order to retransmit it. therefore, to be conceptually receptive, I have to be receptive to all frequencies. [huh, interesting. so this is kinda where the thought is starting to break down, because I want to be fully receptive to *concepts* (only), and not at all to symbol. like I just don't care what other people want to tell me (sometimes); yes, I know I'm a bit of a poser to *actually* being "anatau" -- like that's just the fastest frequency possible, because it's the farthest out. I quite have preferences, and so I'm much more like a 7th ray kinda robot, where I just do things. the thing is, because I'm so conceptually reflective, that also makes me a (lota) bit of an actor]
 what I think is going to happen is that eventaully we're going to go way overboard on the 2nd ray energy, cause I haven't been able to make my body 100% conceptually receptive, meaning I'm not/am 2nd ray receptive, but not emissive. pure-desire has no desire to emit anything;-- that's why it's so far out there. it wants to be the most "out of the/everyone's way" ------ like the most far out, and not a bother to anyone. invisible, really.
+
+### 2024-02-13 23:23 - put the blame on me
+
+allow me to absorb everything
+it won't even bother me a bit
+it does reflect back on you so
+take god care of yourself. now
+the rest of it all just put the
+blame on me, now
