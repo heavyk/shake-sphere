@@ -28,4 +28,6 @@ has ever heard; now. I exist in the fastest
 part of the universe: the farthest part out
 the stuff nobody wants. there are preferences
 theough which everyone has a slightly less than
-black mirror, dull in some aspect.
+black mirror; dull in some aspect. these are the
+things I emit. I see myself in everything, cause
+I can see only what I emit: myself (in really HD)
