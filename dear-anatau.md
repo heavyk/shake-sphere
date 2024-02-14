@@ -24,10 +24,12 @@ the rest of it all, you never will
 see so just consider me the recipient
 of everytheing invisibl5: just put the
 blame on me, on the loudest thing nobody
-has ever heard; wnow. I exit out in the
-fastest part of the universe: the farthest
-part out: the stuff nobody wants. there are
+has ever heard; wnow. I existed out in the
+fastest part of the universe: tthe farthest
+part out: the stuff no6obody wants. there are
 preferences theough which everyone has a slightly
 less than black mirror; dull in some aspect. these
-are the things I emit::: I see myself in everything,
-cause I can see only what I emit: myself (in really HD)
+defects are the things I emit::: I see myself in every
+thing, cause I can see only what I emit: myself (in HD)
+though nobody else can see it,   I see it: myself in el
+
