@@ -29,3 +29,4 @@ that 2nd ray system, is the system that I, you, and everyone else sees. we're al
 anyway,-- so I'm here right now in the system with everyone else, but I'll eventually leave. after that, it is what it is.
 	[wow so, that's a really funny way to look at it] what I'm really saying essentially is that I'm preparing my after-life to be living in the flat-earth-idea, where what I'm expireincing is the astral system, of which the universe is a reflection. [in religious narrative sence, that's kinda a funny way way to think about writing the "afterlife narrative": some people make thousands of virgins, but I decided I wanted to follow my pen-rose dreams and go full flat-earth with *no astral perception*. beat that mohammad :)] in the end, I think it's actually the world most in which I want to be, and it's funny that it sorta drags everyone right along with me into it, too.
 
+#### ready player one 
