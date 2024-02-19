@@ -30,3 +30,6 @@ anyway,-- so I'm here right now in the system with everyone else, but I'll event
 	[wow so, that's a really funny way to look at it] what I'm really saying essentially is that I'm preparing my after-life to be living in the flat-earth-idea, where what I'm expireincing is the astral system, of which the universe is a reflection. [in religious narrative sence, that's kinda a funny way way to think about writing the "afterlife narrative": some people make thousands of virgins, but I decided I wanted to follow my pen-rose dreams and go full flat-earth with *no astral perception*. beat that mohammad :)] in the end, I think it's actually the world most in which I want to be, and it's funny that it sorta drags everyone right along with me into it, too.
 
 #### ready player one 
+### 2024-02-18 23:31 - going straight-edge
+
+you're probably right about needing to go straight-edge: I realised that I used a drug to get my brain to go at faster speeds, which means I'm a bit of an actor. I don't want to be one though, so it's going to be my intention to actually go straight-edge, that way I can be at this speed all the time, without needing the drug (or whatever condition).
