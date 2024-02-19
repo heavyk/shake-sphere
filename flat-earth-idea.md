@@ -15,5 +15,10 @@ below us (ie, the northern hemisphere) will be an astral system of magnificent s
 	most have not yet fiured out that the reason why astrology and astrotheology works, is because we (and all inhabitants of earth) are a reflection of the sky (the inner is like the outer and the outer like the inner). so, if someone were to suddenly start to make a big splash and really disrupt things here on earth, the planets, stars, and galaxies will have to reflect the person that is making a big splash -- which is kinda cataclysmic.
 the northern hemisphere will then become the symbolic reflector (kinda like enki (+-3-+) or venus (-3)) to the rest of the universe, which is now the actor/ground.
 
+#### 2024-02-18 21:02 - the emitter
+
+I noticed that the system I described is the same as it is now in the earth: anatau as the charactor, aphrodite as the reflector, and the universe as the actor. [as I was writing that, I noticed that it's possible that the "earth" is not actually the earth, but that it could easily be the second earth. the idea here being that the second earth is the "new earth" from 1kya -- the year of our lord -- and the real earth is in some other state that we have no knowledge about]. the interesting thing about this is that the "emitter/charactor" is not actually emissive at all, but is actually reflective and attractive. this turns the whole triad thing upside down. if you were to imagine one triagle, there are two emitters on the bottom, and a reflector at the top (like a pyramid). in the opposite arrangement, there is one emitter at the bottom, and two reflectors at the top. in this arrangement, the characor and reflector are both reflectors, but the emitter is the actor.
+	
+
 ### new earth first
 ### 666 days year
