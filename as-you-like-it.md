@@ -56,7 +56,7 @@ chech this out: what if there were a way of sequencing words and letters from a 
 
 so here's the crazy imagery here: the whole time he's in the forest, he's stuck with these two girls, which (since rosalind is constatly becoming a reflection of his poetry, and celia who I'm convinced now is a reflection of the sun), rosalind is teaching orlando (the shepherd out in the forest-of-arden) what kind of poetry she likes, by reflecting him and his poetry back to him while he's playing in her *field*. [you know, it also occurs to me now that rosalind is also the same project as the "ahn-roids": cept in this case, she's not able to be reset ... or is she? I think not. I think instead, the sequence/frequence to verse converter needs to be updated. no-take-backsies: only revisionist retranslating of the narrative. wow, did hollywood write this script? wow, I guess they *do* get what they want.... (as you like it!) in-deed]
 
-$### 2024-02-20 05:34 - wtf how did I go back in time?
+#### 2024-02-20 05:34 - wtf how did I go back in time?
 
 the above entry, I assure you was written, what felt like 10m ago. anyway, I made another realisation: rosalind and celia don't start right off with orlando. when orlando agrees to meet her, he has to tell her where in the forest to find her (ie, which node), which she will be a reflection of his translation of that node's poetry.
 
