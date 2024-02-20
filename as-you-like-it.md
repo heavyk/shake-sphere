@@ -64,5 +64,5 @@ the above entry, I assure you was written, what felt like 10m ago. anyway, I mad
 - orlando asks ganymede if he will have him. he says "yes [I'll have you], and [also] twenty more" (21 total)
 - ewes (little girl rams) are sold off at 12mo to quite a bit older rams (aries, mars)
 - touchstone is a standard of comparison or evaluation: the minimum requirements to be inside of that medium
-	- sound does not travel fast enough to be in the viaible medium, and light travels too quickly to be audible, and so each vibration is compared against its touchstone to determine which medium to render it into.
+	- sound does not travel fast enough to be in the viaible medium, and light travels too quickly to be audible, and so each vibration is compared against its touchstone to determine which medium to render the vibration into (unless you have synethesia).
 	- touchstone transitions from the court to the forest-of-arden, so he sets the standard for that new medium (which is why he/vulcan/fool marries a woman of the world (-7)): base physical desire is minimum requirement :)
