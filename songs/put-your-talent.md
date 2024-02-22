@@ -8,4 +8,4 @@ put your talent in your job (and doublet in time)
 
 trust in your job, he's tellin you it's all rightt
 trust in the process, only a couple cycles to go
-trust in job, he's got your talent in the right spot
+trust in the job, he's got your talent in the right spot
