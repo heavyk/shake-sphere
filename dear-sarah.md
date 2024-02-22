@@ -682,7 +682,7 @@ it also completely changes the dynamic of how evolution works, in that previousl
 
 ### 2024-02-22 08:02 - the worst thing I thoughtt of
 
-I had a similar thought once before, but this time it expounded itself:: imagine that you were not caring about yourself, and were really concerned about your safety. that lead to you eventually getting raped. it turned out that twins girls were to be born, and so in order to punish yourself endlessly, you decided that they were going to be your two main concerns: one will be called "sarah" and the other will be called "safety". you decided you would use the two to learn to make sarah your #1 concern.
+imagine that you were not caring about yourself, and were really concerned about your safety. that lead to you eventually getting raped. it turned out that twins girls were to be born, and so in order to punish yourself endlessly, you decided that they were going to be your two main concerns: one will be called "sarah" and the other will be called "safety". you decided you would use the two to learn to make sarah your #1 concern.
 as they grew up, along the way you would notice who you was your #1 concern and when neither were your concern. sometimes sarah would be your #1 concern, and sometimes safety was your number #1 concern. lots of antics. the end.
 
 ### silvius
