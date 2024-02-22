@@ -214,6 +214,8 @@
 - *plant*: produced from a *seed*, with the process of *time*. some need *nurture*; some need *nourishment* and some (like *weeds*) don't need any help at all.
 - *would*, *woo'd*, *wood*: to exercise the *will*. ex. "I would/will that...". or, "after wooing her, I would her"
 - *entreat*: penetrate.
+- *arm*: penis or *weapon*
+- *armed*: to come bearing a *arm*
 - reason:
 - remedy:
 
