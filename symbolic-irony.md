@@ -12,3 +12,4 @@ in a symbolic system any thing that is the same as another thing, is itself: it 
 ### 2024-02-22 04:27 - anything less/greater than infinity is not infinity
 
 in fact, everything that is not infinity, is not infinity.
+(04:30)  even    infinity times infinity, is not infinity.
