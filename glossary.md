@@ -237,6 +237,23 @@ oath
 	- scholarship
 	- fellowship
 	- friendship
+	- lordship
+	- ladyship
+	- soldiership
+	- courtship
+	- companionship
+	- spectatorship
+	- workmanship
+	- horsemanship
+	- bachelorship
+	- attorneyship
+	- township
+	- protectorship
+	- consulship
+	- rectorship
+	- stewardship
+	- captainship
+	- mastership
 	- ... lots of ships
 
 ### 2023-12-30 07:55 - a comment on the "veracity" of my glossary
