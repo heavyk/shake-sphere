@@ -8,3 +8,7 @@ it is actually possible to create a system whereby everyone *is* equal, but and 
 ### 2024-02-20 19:07 - both sides of the equation must be different
 
 in a symbolic system any thing that is the same as another thing, is itself: it occupies the sam5 space, has the same properties, etc. -- and so therefore all of the infinite instances of that thing can all be considered equal, or one and the same; which is a value, not an equation. in order to have an equation, both sides must be different: an an example, for `x = 3`, `x` is a variable and `3` is a constant. a variable is *never* going to equal to a constant, ever.
+
+### 2024-02-22 04:27 - anything less/greater than infinity is not infinity
+
+in fact, everything that is not infinity, is not infinity.
