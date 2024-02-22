@@ -228,6 +228,16 @@ oath
 
 ## endings
 - *-et*: smaller version of the word it's connected to: juliet = small julia, boyet = small boy, dulcet = small sweet, etc.
+- *-ship*: a wooden boat, usualy filled with seamen, which motivates the first part of the word:
+	- kingship
+	- apprenticeship
+	- mentorship
+	- relationship
+	- guardianship
+	- scholarship
+	- fellowship
+	- friendship
+	- ... lots of ships
 
 ### 2023-12-30 07:55 - a comment on the "veracity" of my glossary
 
