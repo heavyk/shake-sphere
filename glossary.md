@@ -27,21 +27,21 @@
 - *cave*: worse living circumstances than a *house*.
 - *harbour*: docking one's *ship* somewhere. [the imagery for this word is notable because large wooden objects stand out: ships, warfs, planks, shipping boxes; in a stark contrast to lots of *water*]
 - *ship*: large wooden thing that floats on *water*; used in *wars*.
-- *word*: expulsion of the *will*
+- *word*: expulsions of the *will*: jizz.
 - *arrest*: detain, retain something (usually *words*)
 - *aquittances*: evidenece of discharge (usually made with *words*)
 - *wars*: shedding of/first blood; particularly in the loss of virginity.
 - *sum*: the payment made after/of consummation (like a dowry)
 - suit: 
-- *lion*: the *narrated* strong masculine figure. a well-met gentleman that stands as a conquerer, and prominant male consort (el).
+- *lion*: the *narrated* strong masculine figure. a well-met gentleman that stands as a conquerer, and preeminent male consort (el).
 - *lion* of the *jews*: the narrated *lion* to come: seen in pious heraldry (and elsewhere), as the lion with the tounge sticking out.
-- *tounge*: represents the word of YHWV (narrated God) to become reality (as needed/wanted), and then later to become flesh (the actual conquering king that shows up: I AM [*will*]). God the father (YHVH) speaks the world into existence with *words* (the top-down perspective). God the son/lion (YHVVH), narrates his reality with *words*, just like the father, but narrates the of building the *physic* reality up to God (the *tower*).
-- *lion* being lying with the *lamb*: the lion is the narrated masculine (for vvitch paris is the butt of the joke), which is in contrast to aries the ram/lamb; the lion (mercury) is narrated to be awesome, but on the battlefield, if thoth is not narrated to be awesome on the battlefield, then, he is at the mercie of the gods/planets; mars, in contrast is pure-reaction on the battlefield, which allows him to "defy" the *will* of the *gods*, and triumphs even when his stars are not well-aligned.
-- *lion* being mated with the *lamb* (the evve/eve): evve (-5+) has a *book* and ewe/eve (-7) has a *field*; both come from a *ram*: *aries*. both of them spell disaster to the lion. *eve* will kill *lion* (by reflecting his own narrated self back to him) in the mating process (for example if he's disloyal, *eve* will be disloyal (a *strumpet*) to him), yielding/producing a new honey-pot in the process (such is the *will* of the *our lady* the *physic*). the end of the age of the lion, where he was once [narrated to be] on *top*.
+- *tounge*: represents the word of YHWV (narrated God) to become reality (as needed/wanted), and then later to become flesh (as the actual conquering king that shows up as his I AM/*will*). God the father (YHVH) speaks the world into existence with *words* (the top-down perspective). God the son/lion (YHVVH), narrates reality with *words*, just like the father, but narrates the bottom-up building of the *physic* reality up to *heaven* (the *tower*).
+- *lion* lying with the *lamb*: the lion is the narrated masculine (for vvitch paris is the butt of the joke); which contrasts to aries the ram/lamb. when the lion (mercury) is narrated to be awesome, but on the battlefield, if thoth is not narrated to be awesome on the battlefield, then, he is at the mercie of the gods/planets; mars, in contrast is pure-reaction on the battlefield, which allows him to "defy" the *will* of the *gods*, and triumphs even when his stars are not well-aligned. [FIXME] skipping over the obvious age difference between the lion (mercury) and the lamb (mars), this is a reuniting of mars and mercury back into one flesh (mercury was once the heart of mars, but they went separate ways, causing great upheaval, becoming both emitters: ninshzidda for the sun and ninurta for the earth)
+- *lion* being mated with the *lamb* (the evve/eve): evve (-5+) has a *book* and ewe/eve (-7) has a *field*; both come from a *ram*: *aries*. both of them spell disaster to the lion. *eve* will kill the *lion* (by reflecting his own narrated self back to him) in the mating process (for example if he's disloyal, *eve* will be disloyal (a *strumpet*) to him), yielding/producing a new honey-pot in the process (such is the *will* of the *our lady* the *physic*). this signified the end of the age of the lion, where he was once [narrated to be] on *top*.
 - *gods*: planets or any other significant celestial body. for vulcan, venus, and thoth (the three moons of the sun), the planets play a significant role in deciding their fate (astrology). also referred to as stars. planets are just stars that have a protective shroud over them (sometimes the shroud is reflective (like aphrodite) and sometimes it's not (like vulcan/thoth/venus)).
 - *tower*: a long pointy cyllendar where *prisoners* are kept
-- *prisoner*: retained seamen
-- *seamen*: men of the *ship*; hopefully not thrown overboard and lost to the *sea*: the best seamen are the ones that stay with the *ship*.
+- *prisoner*: retained *seamen*
+- *seamen*: men of the *ship*; hopefully not thrown overboard and lost to the *sea*: the best seamen are the ones that stay in the *ship*.
 - *sea*: the plentiful *waters* that cover the earth, containing a lot of *fish*. the endless supply of females/*waters* for the protruding masculine *land*.
 - *physic*: the body/bawdy of a person in *material* *manner* (7), and *form* (3) following (what do they *really* look like (7), behind the (3) shroud/facade). associated with shame and nakedness, because the symbolic/imaginary clothes/garments no longer cover them.
 - *manner*: physical (3d) *appearance* as a reflection of the action; stands as a contrast to the symbolic/imaginary *form*. *manner* is used to build *reputation* and *honour* and is slightly different from *conduct*, because *physical* *appearance* can be used to cover over the emotion/concept/desire from which it originates. as an example, concept/emotion/*disposition* felt, gets turned into both appearance and also action; usually they reflect eachother: so, if I feel angry, I *wiLL* look both angry in *physic* and *action* (though maybe not in *form*)
@@ -165,7 +165,7 @@
 - *organ*: a thing that makes sound when you play it just/right. also, it's a *wind* *instrument*. a *bell* is an *organ*, butt a bell is not.
 - *player*: the *playright* puts *words* into their *mouth*. a bodily representation of the *will* of the *gods*
 - *mouth*: something that both makes *words* and also receives *words* (depending whether you *listen* with your *ears*, or with your *mouth*)
-- *listen*: to receive someone's *words* (gladly or madly, you decide)
+- *listen*: to receive someone's *words* (sometimes gladly)
 - *playewrite*, *playright*, *playwright*: the *shepherd*; he puts *words* in the *mouths* of the *sheep*,-- with his *plays*. also, brings *heaven* down to *earth*
 - *play*: smoothe or rough *action*, laid out in *words*.
 - *plays*: action plan or scheme. stratagem; strategery: casanova *action*. it's the *reputation* of *mars* the *playwrite*.
@@ -182,7 +182,7 @@
 - *couch*, *seat*: buttocks. [the image is of strong *muscle* with a protective layer of *fat*]
 - *eat*: to recive nourishment in some way; usually *gratifying* or *elevating* a person's *disposition*.
 - *eyes*: a receptive *organ* of *images* coming from the exterior world.
-- *eye*: the mind's *eye* (or third *eye*), which receives the *image* from the *inner-world* or *under-world*.
+- *eye*: the mind's *eye* (or third *eye*), which receives the *image* from the *inner-world* or *under-world*. also, anus.
 - *image*: penis. something that gets put into the person's *eye*.
 - *picture*: an *image* generated by the mind's *eye*; and-- because it's self-produced, it tends to be more lofty, and therefore *becomes* the source of an *opinion*.
 - *mind*: the *seat* of the logical consciousness: the personal *playbook*.
@@ -197,7 +197,7 @@
 - *sew*: a form of *work* which produces *plants* with *time* (performed in a *field*)
 - *knit*: join two threads together by tying a *knot* [notice how the image has two penetrative *instruments*; unlike *sewing* which has only one]
 - *plow*: to place *seed* into the *ground* (which is *basest* of them all)
-- *ground*: vagina. *earth*. putting *seed* into it, will produce something with *time*.
+- *ground*: vagina. the womb of *earth*. putting *seed* into it, will produce something with *time*.
 - *measurement*: a mental comparison resulting in a *judgement*: usually of length, girth, width, or height.
 - *measure*: *judgement* of a certain *size*.
 - *judgement*: *action* described with *words*, and usually is a precursor to *punishment* *bestowed* on the *offender*
@@ -212,7 +212,7 @@
 - *heaven*: where the *gods* reside and have interplay. where eternal life and celestial beings are found. inspired *players* and *plays* will reflect the movement of the *gods* in *heaven*.
 - *earth*: the universal *body*.
 - *plant*: produced from a *seed*, with the process of *time*. some need *nurture*; some need *nourishment* and some (like *weeds*) don't need any help at all.
-- *would*, *woo'd*, *wood*: to exercise the *will*. ex. "I would/will that...". or, "after wooing her, I would her"
+- *would*, *woo'd*, *wood*: to exercise the *will*. (ex. "I would/will that...". or, "after wooing her, I would her")
 - *entreat*: penetrate.
 - *arm*: penis or *weapon*
 - *armed*: to come bearing a *arm*
@@ -221,7 +221,7 @@
 - *handkerchief*: a piece of linen laid down to capture *first-blood*, and a token of her lost virginity. evidence of a *quarrel* or a *wound*: *hand* + *kur* + *chief*, or *hand* + *kerchief* (head cover) -- also has the sound of "kirsch" (cherry) and κίρκος/krikos (ring)
 - *sport*: sex.
 - *carpenter*: someone who works with a lot of *wood*.
-- *wood*: the more years the wood has, the more rings are under its bark, and so therefore has a more powerful and visceral presence it'll have. ex. "under an ancient and powerful oak, I laid down to have the most magnificent dream"
+- *wood*: the more years the wood has, the more rings are under its bark, and so therefore has a more powerful and visceral presence it'll have. (ex. "under an ancient and powerful oak, I laid down to have a most magnificent dream")
 - *bark*: a *ship*, but also has the double meaning to be the outermost layer of *wood*.
 
 present'd
