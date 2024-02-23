@@ -218,6 +218,7 @@
 - *armed*: to come bearing a *arm*
 - reason:
 - remedy:
+- *handkerchief*: a piece of linen laid down to capture *first-blood*, and a token of her lost virginity. evidence of a *quarrel* or a *wound*: *hand* + *kur* + *chief*, or *hand* + *kerchief* (head cover) -- also has the sound of "kirsch" (cherry) and κίρκος/krikos (ring)
 
 present'd
 introduc'd
