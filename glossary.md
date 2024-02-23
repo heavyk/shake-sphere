@@ -219,6 +219,7 @@
 - reason:
 - remedy:
 - *handkerchief*: a piece of linen laid down to capture *first-blood*, and a token of her lost virginity. evidence of a *quarrel* or a *wound*: *hand* + *kur* + *chief*, or *hand* + *kerchief* (head cover) -- also has the sound of "kirsch" (cherry) and κίρκος/krikos (ring)
+- *sport*: sex.
 
 present'd
 introduc'd
@@ -230,21 +231,21 @@ oath
 ## endings
 - *-et*: smaller version of the word it's connected to: juliet = small julia, boyet = small boy, dulcet = small sweet, etc.
 - *-ship*: a wooden boat, usualy filled with seamen, which motivates the first part of the word:
-	- kingship
+	- kingship: your royal *highness*, my *liege*
 	- apprenticeship
 	- mentorship
 	- relationship
 	- guardianship
-	- scholarship
-	- fellowship
+	- scholarship: help a student to aford more *studies* or access to more *books*
+	- fellowship: usually of the *ring*
 	- friendship
 	- lordship
-	- ladyship
+	- ladyship: a woman capable of effective motivation
 	- soldiership
-	- courtship
+	- courtship: before you can go in the front door, start with the back
 	- companionship
 	- spectatorship
-	- workmanship
+	- workmanship: evaluated by its quality, especially from a carpenter
 	- horsemanship
 	- bachelorship
 	- attorneyship
