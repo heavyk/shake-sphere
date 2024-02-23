@@ -220,6 +220,9 @@
 - remedy:
 - *handkerchief*: a piece of linen laid down to capture *first-blood*, and a token of her lost virginity. evidence of a *quarrel* or a *wound*: *hand* + *kur* + *chief*, or *hand* + *kerchief* (head cover) -- also has the sound of "kirsch" (cherry) and κίρκος/krikos (ring)
 - *sport*: sex.
+- *carpenter*: someone who works with a lot of *wood*.
+- *wood*: the more years the wood has, the more rings are under its bark, and so therefore has a more powerful and visceral presence it'll have. ex. "under an ancient and powerful oak, I laid down to have the most magnificent dream"
+- *bark*: a *ship*, but also has the double meaning to be the outermost layer of *wood*.
 
 present'd
 introduc'd
