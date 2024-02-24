@@ -56,14 +56,17 @@
 	- howitzer says he won't do it just because the *world* wants it, but by my *will* (his own penis? lol) - the concept is he wants to have sex with himself. he really likes himself, for whom now armado is to be materialised. "but by my [own] will" is also about him only being able to do things he wants to do (not cause others, the world, want him to do it).
 	- silverclog says: "Why, *will* shall break it; *will* and nothing else" [lol, of course *will* will break the *oath*; what else would he put in her? a *spear*? and shake her around a bit?]. there's also the double meaning of her needing his conscent first.
 	- howitzer: "Your ladyship is ignorant what it is." [lol, she have no idea what she just said]. there's also the double meaning of him thinking he's going to trick her into having sex.
-
+- they are now paired:
+	- howitzer :: silverclog (red) (7-1?)
+	- youman :: kate (orange) (4-2)
+	- longhead ::  (green) (4-4?)
+		- a woman sometimes, if by daylight, she's seen
+	- baron :: rosalind (blue) (5-3)
+- boye tells the girls that they've won.
+	- in the original text, the duke is now going to have really good eyesight.
+- boye wants her just to give him one loving kills (meaning, seduce him) -- and then upon seducing him, there's this imagery of the flesh and spirit identities swapping places (ie, the spirit leaves the body and all is left is the automaton, which the saturnian system guys can control symbolically).
+	- the way I think about this goes something like this (this is my case, not howitzer's): when my "spirit" leaves me (ie, my RH), will become vacant and will take on the form of its opposite hemisphere; and so as I begin to learn to use my left-side again, the brain will regrow physical neurons and stuff to move my limb (right now, because my brain is twisted, my LH does everything).
+		- there are interesting qualities to this, because right now, my LH has become a refl3ction of my RH; doing everything that my RH does, but opposite -- and so therefore different. [I want to increase communications, not limit them; which is why I'm the opposite of howitzer] it is a cool idea that I'll be "rid" of my problems, but I kinda want to keep them around. I like that they're there, and they offer me considerable advantage, that I don't really want to lose. the other interesting thing is that I'd have to completely rebuild my br5ain as a reflection of this person (kenny). so I will become double myself, instead of havving that connection to the infinite. kenny does have connection to infinite, because he's learned how to do it. the connection for kenny is not the dense hydrogen like it is in my RH (super/highest 2nd ray), but is more of a learned physical structure. when I take drugs, that structure runs faster, and so is therefore able to access higher frequencies.
+		I'm constantly limited by my physical body, and can only go as fast as my body goes. normally, I spend the majority of my time lying on the ground, spacing out, so time runs really slow for me. so, to speed things up a but (and lose mundane consciousness for a while) I like to take drugs. if my physical body goes faster, then I have more depth of perception and it's easier to write these things. obviously, thatt is a very *conditional* (meaning symbolic) way of looking at things, so I'm constantly being pulled back into "reality" again where things go slow and I have to find an *unconditional* way of feeling good or interested in something. I will probably continue to go in circles (like a ring) until I'm *actually unconditional*. that could take a while, and I'm actually [brb]
 
 ---- [disorganised]
-
-
-
-- howitzer :: silverclog (red) (7-1?)
-- youman :: kate (orange) (4-2)
-- longhead ::  (green) (4-4?)
-- baron :: rosalind (blue) (5-3)
-
