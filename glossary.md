@@ -261,6 +261,11 @@ oath
 	- mastership
 	- ... lots of ships
 
+## locations
+- *aquitane*: receiver of aquit(ance)
+- *verona*: past the saturnian system is the promethian system. this is the name for such a place (the solar emitter)
+- navarre: [not sure yet, but I believe it's literally basque country, below bilbao, and is likely referring to black prince: silverclog is beatrice from peter of castille]
+
 ### 2023-12-30 07:55 - a comment on the "veracity" of my glossary
 
 *I* do not consider it to be anything remotely close to what the OG shakespeare intended to mean. I'm certain (cause I did it on purpose) that there are a lot of anachronisms and modernisation of antiquated ideas. I probably have a whole lot of it way off. I decided to write the glossary so that when I write my interpretations and meanings of a particular part, there is at least somewhat of a reference to how my brain is interpretting the symbols. eventually, with the passage of time, my own interpretations will come back to haunt me, and I'll eventually become a reflection of my own ideas: the good and the bad equally (in my perception).

@@ -42,7 +42,9 @@
 	- you know as a personal experience: when I lived in spain many people would ask me in bars why I didn't have girlfriends and stuff. I would tell them I had some really important mission that I wanted to build take over the world with computers and technology and stuff, and they'd look at me, having no concept of all of the technologies that I can conjure, and say "but don't you have *necessities?!?!*". I looked to them like a space alien because my desire to create technology is much higher than my desire for sex. spanish people perceive things that *need* to get done (the basest form of desire), because for them all other desire is *sexual desire*; thus they equate sexual desire with *necessity*.
 - howitzer subscribes his name and says anyone who breaks the law stands in eternal *shame*
 	- howitzer knows he will be permanently shamed and allowed for all the world to see his faults; it's unavoidable to him and he knows it, so he wants to remind the other vulcans that they too will also have the same *shame* as him; and, if they want to make it a *competition*, he bets he will be the last one to break his *oath* [lose his virginity].
-- boye says the *competetors* in *oath*, are briefed that they should meet the girls *before [boye] came* (where? first coming? second coming? he's already talking to the girls before they've seen the competitors). boye then explains what that means: "he intends to *lodge* you in the *field*" [vaginal sex]
+- boye tells the girls that howitzer had notice of their fair approach
+- boye says the *competetors* in *oath*, are briefed that they should meet the girls *before [boye] came* (where? first coming? second coming? he's already talking to the girls before they've seen the competitors). boye then explains what that means: "he intends to *lodge* you in the *field*"
+	- the funny thing about this play is how silverclog is constantly saying symbolically sexual things by accident. [I can say from my experience, this happens to me a lot, and it's because a perception of desire (that is, looking at the motivation conceptually), often times means that I say the obvious thing, but it often sounds really sexual to others, becaUse they don't see it as *obvious* like I do] what's happening here is that because she's so busy looking at the obvious stuff, she only sees the material venir over the top -- so she's going to take that literally as being put out in a field. as a girl, it's quite a problem, but the cool thing is, that I personally love the field, and spend many nights out there watching stars. that's a totally cool thing for me; though, for her, this is getting off to a pretty bad start or misunderstanding and dishonesty when symbols aren't explicit for those that only look at the obvious. they'll get away with their symbolic misdirection and get married at the end (I think), but (I can see the end now) they're all literally marrying their *worst nightmares* (our lady help my lord - LOL)
 - they meet the girls:
 	- howitzer calls silverclog *fair* princess and welcomes her to his *land*. silverclog reflects fairness back to him, and tells him, *welcomed* him, she has not *yet*.
 		- the *roof* of this *court* is too high to be his [lol, she has no idea what a *court* is], and *welcome* to the *wide fields* [like a prostitute, strumpet, or bawd] to base, to be hers.
@@ -54,3 +56,14 @@
 	- howitzer says he won't do it just because the *world* wants it, but by my *will* (his own penis? lol) - the concept is he wants to have sex with himself. he really likes himself, for whom now armado is to be materialised. "but by my [own] will" is also about him only being able to do things he wants to do (not cause others, the world, want him to do it).
 	- silverclog says: "Why, *will* shall break it; *will* and nothing else" [lol, of course *will* will break the *oath*; what else would he put in her? a *spear*? and shake her around a bit?]. there's also the double meaning of her needing his conscent first.
 	- howitzer: "Your ladyship is ignorant what it is." [lol, she have no idea what she just said]. there's also the double meaning of him thinking he's going to trick her into having sex.
+
+
+---- [disorganised]
+
+
+
+- howitzer :: silverclog (red) (7-1?)
+- youman :: kate (orange) (4-2)
+- longhead ::  (green) (4-4?)
+- baron :: rosalind (blue) (5-3)
+
