@@ -59,7 +59,7 @@
 - *message*: *desire* transmitted conceptually, then later translated into *symbol*
 - *symbol*: *action*/*words*/*work*, *appearance*/*form*/*structure*.
 - *practise*: *symbol* in *action*.
-- *speed*: another name for *mercury* or perhaps *vulcan*
+- *speed*: another name for *mercury* or perhaps *vulcan* [falstaff calls mistress "she-mercury"]
 - *traitor*: a girl dressed as a boy or a boy dressed as a girl. [the image that is conveyed is that lusty vulcan/bottom/knaves must be girls in a boy's body, and so they betray their gender]
 
 - *leg*: penis; and a particularly large one, at that. [also note how the leg extends: looks similar to getting an erection]
@@ -224,6 +224,7 @@
 - *wood*: the more years the wood has, the more rings are under its bark, and so therefore has a more powerful and visceral presence it'll have. (ex. "under an ancient and powerful oak, I laid down to have a most magnificent dream")
 - *bark*: a *ship*, but also has the double meaning to be the outermost layer of *wood*.
 - *heart*: anus.
+- *canary*: very high-pitched bird; a young girl.
 
 present'd
 introduc'd
