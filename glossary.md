@@ -223,6 +223,7 @@
 - *carpenter*: someone who works with a lot of *wood*.
 - *wood*: the more years the wood has, the more rings are under its bark, and so therefore has a more powerful and visceral presence it'll have. (ex. "under an ancient and powerful oak, I laid down to have a most magnificent dream")
 - *bark*: a *ship*, but also has the double meaning to be the outermost layer of *wood*.
+- *heart*: anus.
 
 present'd
 introduc'd
@@ -266,6 +267,10 @@ oath
 - *verona*: past the saturnian system is the promethian system. this is the name for such a place (the solar emitter)
 - navarre: [not sure yet, but I believe it's literally basque country, below bilbao, and is likely referring to black prince: silverclog is beatrice from peter of castille]
 - arragon: looks to be a reference again to the north of spain. I think this is a trigger to say we're talking about the black prince. in MAAN, beatrice is obviously the daughter of peter of castille. after "purgering" the black prince, she was put in a nunnery (if I remember correctly).
+
+## phrases
+- "I'll have you *lodged* in my *heart*": he's basically saying "thank you, my *liege*" to silverclog. [I don't know for sure, but it seems that there's a direct heart connection that happens in anal sex, so double meaning that he feels her in his heart. I personally experience the feeling of other reflective/silver clog/desire girls in my heart]
+- "grab my *sword* by the hilt, and run me through with it": a "reach around".
 
 ### 2023-12-30 07:55 - a comment on the "veracity" of my glossary
 
