@@ -265,6 +265,7 @@ oath
 - *aquitane*: receiver of aquit(ance)
 - *verona*: past the saturnian system is the promethian system. this is the name for such a place (the solar emitter)
 - navarre: [not sure yet, but I believe it's literally basque country, below bilbao, and is likely referring to black prince: silverclog is beatrice from peter of castille]
+- arragon: looks to be a reference again to the north of spain. I think this is a trigger to say we're talking about the black prince. in MAAN, beatrice is obviously the daughter of peter of castille. after "purgering" the black prince, she was put in a nunnery (if I remember correctly).
 
 ### 2023-12-30 07:55 - a comment on the "veracity" of my glossary
 
