@@ -13,3 +13,9 @@ in a symbolic system any thing that is the same as another thing, is itself: it 
 
 in fact, everything that is not infinity, is not infinity.
 (04:30)  even    infinity times infinity, is not infinity.
+
+### 2024-02-27 07:11 - nothing cannot exist in symbolic
+
+in order to have no thing, a some thing must be defined.
+as soon as a thing is defined, all one can do is say,
+none of those things are there; which is not nothing.
