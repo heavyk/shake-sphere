@@ -225,6 +225,10 @@
 - *bark*: a *ship*, but also has the double meaning to be the outermost layer of *wood*.
 - *heart*: anus.
 - *canary*: very high-pitched bird; a young girl.
+- *your grace*: penis.
+- *make haste*: happens shortly before *coming*
+- *shoulder*: *heads* sit on *shoulders*.
+- *doublet*: two of something, but also is a vestment for the trunk, which upon opening, gives access to the heart.
 
 present'd
 introduc'd
