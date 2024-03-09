@@ -221,14 +221,14 @@
 - *handkerchief*: a piece of linen laid down to capture *first-blood*, and a token of her lost virginity. evidence of a *quarrel* or a *wound*: *hand* + *kur* + *chief*, or *hand* + *kerchief* (head cover) -- also has the sound of "kirsch" (cherry) and κίρκος/krikos (ring)
 - *sport*: sex.
 - *carpenter*: someone who works with a lot of *wood*.
-- *wood*: the more years the wood has, the more rings are under its bark, and so therefore has a more powerful and visceral presence it'll have. (ex. "under an ancient and powerful oak, I laid down to have a most magnificent dream")
-- *bark*: a *ship*, but also has the double meaning to be the outermost layer of *wood*.
+- *wood*: the more years the wood has, the more rings are under its bark, and so therefore has a more powerful and visceral presencee. (ex. "under an ancient and powerful oak, I laid down to have a most magnificent dream")
+- *bark*: a *ship*, but also has the double meaning to be the outermost layer of *wood* (under which are many *rings*).
 - *heart*: anus or vagina [bea says "a double heart for his single one", meaning that she has two hearts and benedick only one]
 - *canary*: very high-pitched bird; a young girl.
 - *your grace*: penis.
 - *make haste*: happens shortly before *coming*
-- *shoulder*: *heads* sit on *shoulders*.
-- *doublet*: two of something, but also is a vestment for the trunk, which upon opening, gives access to the heart.
+- *shoulder*: a *head* sits upon *shoulders*.
+- *doublet*: two of something, but also is a vestment for the trunk, which upon opening, gives access to the *heart*.
 
 present'd
 introduc'd
@@ -261,25 +261,26 @@ oath
 	- township
 	- protectorship
 	- consulship
-	- rectorship
+	- rectorship: wat?
 	- stewardship
 	- captainship
 	- mastership
-	- ... lots of ships
+	- ... lots of *ships*
 
 ## locations
 - *aquitane*: receiver of aquit(ance)
 - *verona*: past the saturnian system is the promethian system. this is the name for such a place (the solar emitter)
 - navarre: [not sure yet, but I believe it's literally basque country, below bilbao, and is likely referring to black prince: silverclog is beatrice from peter of castille]
-- arragon: looks to be a reference again to the north of spain. I think this is a trigger to say we're talking about the black prince. in MAAN, beatrice is obviously the daughter of peter of castille. after "purgering" the black prince, she was put in a nunnery (if I remember correctly).
-- messina: the very *tip* of the *foot* [visually speaking; look at a map of italy ]
+- *arragon*: looks to be a reference again to the north of spain. I think this is a trigger to say we're talking about the black prince. in MAAN, beatrice is obviously the daughter of peter of castille. after "purgering" the black prince, she was put in a nunnery (if I remember correctly).
+- *messina*: the very *tip* of the *foot* [this is a visual; look at a map of italy]
 
 ## phrases
 - "I'll have you *lodged* in my *heart*": he's basically saying "thank you, my *liege*" to silverclog. [I don't know for sure, but it seems that there's a direct heart connection that happens in anal sex, so double meaning that he feels her in his heart. I personally experience the feeling of other reflective/silver clog/desire girls in my heart]
 - "grab my *sword* by the hilt, and run me through with it": a "reach around".
+- "I beseech your *word* my *liege*": I'll put myself in a hopeful/prayerful position and wait for his word.
 
 ## names
-- benedick: bene (good) + dick
+- benedick: bene (good) + dick. also sounds like "been a dick"
 - desdemona: desde (coming/descended from, since) + mona (female monkey) [notice in the picture of katherine wife of arthur/henry-8, she's holding this monkey in her arm]
 
 ### 2023-12-30 07:55 - a comment on the "veracity" of my glossary
