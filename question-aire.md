@@ -31,6 +31,8 @@ I'm not quite sure how much of this "infection" I still have myself, but I can a
 
 
 
+### can you explain this antarctica thing?
+### what do I think about aliens?
 ### can you explain the 2nd-ray installation?
 ### why obediance?
 ### can you explain "know thyself?"
