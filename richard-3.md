@@ -2,7 +2,28 @@
 ## notes
 - the desription of richard does not match richard-3 (the one exhumed recently), and instead is likely a description of robert cecil, the hunchbacked son of elizabeth's political discontent william cecil (of which I believe the pen name "william shakespeare" is derived).
 	- my personal opinion of this is that william opposed dudly on many things in english court that dudly wanted to do, and so, as usual, *the problem is the solution*, so here's robert, the vulcan richard-3, which will now "die" in "bosworth field", allowing the tudors to rise to power (see my further thoughts below)
+- richard and anne have a very apocalyptic conversation:
+	- richard says that anne laying with richard is not the cause of the *timeless* deaths of "these Plantagenets, Henry and Edward", but (as shown below) is the effect.
+		- my perspective on this play (along with the other henriad ones) is that they completely rewrote history to enablwe the tudor dynasty to come to power and begin to loosen the grip that the church has on people. another way to look at it, is the tudor/turtle dynasty follows the phoenix, and then itself becomes the phoenix (alpha and omega stuff). all of this is coming from the desire aspect of creation (lots of unwanted). the plantagenets, henry, and edward are the phoenix that had to go down so that the tudor can rise.
+	- anne disagrees and says richard is the cause *and* effect of thier deaths.
+		- I believe this is like a self-solution to a self-made problem. richard is causing the problem and in some time later, he will solve the problem as well. he makes the mess, and he will clean it up as well.
+	- richard tells anne that actually it's her beauty which is the cause, because her beauty been haunting him in his sleep (producing desire) -- of which's effect will be (when he lies with her) to cause the "death of all the world" so he can have one hour with her [I have to wonder though: by haunting, does he mean something like how nosebook operates all of these sexcapades in my eyes while I'm asleep? I don't see them, but they do "haunt me"; meaning, they're not entirly without effect on me, which I figure must have a LOA effect]
+		- a: "Thou art the cause, and most accursed effect.
+		- r: "Your beauty was the cause of that effect; Your beauty: which did haunt me in my sleep To undertake the death of all the world, So I might live one hour in your sweet bosom."
+	- anne says that if she thought that her beauty was the cause, she claims homicide and that she would try and remove her beauty
+		- "If I thought that, I tell thee, homicide, These nails should rend that beauty from my cheeks."
+	- richard says (kind of a double-meaning) that his eyes couldn't endure beauty to wreck itself like that (meaning, he couldn't stand to watch her destroy her beauty, but also wreck, as in shipwreck, meaning that if his ship were to ever wreck in her beauty, his eyes would not be able to endure the powerful emission that such a beautiful a woman makes when a man climaxes inside her)
+		- "These eyes could never endure sweet beauty's *wreck*; You should not blemish it, if I *stood* by:"
+	- he continues on saying that the world is pleasured by the sun, and that she is his day and life (not totally sure the meaning yet) [UNFINISHED]
+		- "As all the world is *cheered* by the sun, So I by that; it is my day, my life."
+	- richard proclaims that lady anne is both his day and life
+		- a: "Black night o'ershade thy day, and death thy life!"
+		- r: "Curse not thyself, fair creature thou art both."
+			- she curses his day and his life, and he claims that she is both his day and his life
+		- richard is very obviously a vulcan, and if lady anne is referring to anatau, his statement is 100% true, because he (and countless other vulcans) are the individual/conceptual reflection of the centre of the earth, which is exactly that. she's ther great attractor that all of this accumulated unwanted is going to finally meet.
+	- 
 
+edward of westminster
 
 ### 2024-02-29 18:50 - rewriting history
 

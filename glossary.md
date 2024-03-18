@@ -41,8 +41,8 @@
 - *gods*: planets or any other significant celestial body. for vulcan, venus, and thoth (the three moons of the sun), the planets play a significant role in deciding their fate (astrology). also referred to as stars. planets are just stars that have a protective shroud over them (sometimes the shroud is reflective (like aphrodite) and sometimes it's not (like vulcan/thoth/venus)).
 - *tower*: a long pointy cyllendar where *prisoners* are kept
 - *prisoner*: retained *seamen*
-- *seamen*: men of the *ship*; hopefully not thrown overboard and lost to the *sea*: the best seamen are the ones that stay in the *ship*.
-- *sea*: the plentiful *waters* that cover the earth, containing a lot of *fish*. the endless supply of females/*waters* for the protruding masculine *land*.
+- *seamen*, *sailors*: men of the *ship*; hopefully not thrown overboard and lost to the *sea*: the best *seamen* are the ones that are able to stay in the *ship*.
+- *sea*: the plentiful *waters* that cover the earth, containing a lot of *fish*. the endless supply of females/*waters* for the protruding masculine *land*. also, where the *ship* sets *sail*.
 - *physic*: the body/bawdy of a person in *material* *manner* (7), and *form* (3) following (what do they *really* look like (7), behind the (3) shroud/facade). associated with shame and nakedness, because the symbolic/imaginary clothes/garments no longer cover them.
 - *manner*: physical (3d) *appearance* as a reflection of the action; stands as a contrast to the symbolic/imaginary *form*. *manner* is used to build *reputation* and *honour* and is slightly different from *conduct*, because *physical* *appearance* can be used to cover over the emotion/concept/desire from which it originates. as an example, concept/emotion/*disposition* felt, gets turned into both appearance and also action; usually they reflect eachother: so, if I feel angry, I *wiLL* look both angry in *physic* and *action* (though maybe not in *form*) [wtf, did I write this completely backwards???? manner is the symbolic/action, and form is the physical reflection of the manner -- OMG] [FIXME]
 - *form*: the symbolic/imaginary [symbolic *disposition*] that someone has built-up (or was born with), from their *honour* and *reputation*. *form* can be built by performing *action* according to the *code* of *conduct*; *reputation* is built in the same way.
@@ -68,7 +68,7 @@
 - *liege*: penis of noble *disposition*.
 - *courtier*: a *court* penis. usually very galant.
 - *lip*: usually vaginal lips, but *wordplay* often confuses the matter with something *words* come out of.
-- *head*: a thinking apparatus, sometimes located between the legs.
+- *head*: a thinking apparatus, sometimes located between the legs, and sometimes on the shoulders.
 - *cap*: something a *head* goes into.
 - *glove*: something that fits tightly around the *fingers* (usually refers to a vagina).
 - *chair*: something that a buttocks sits upon. [also comes with imagery of a man with an erect penis having someone sit on his lap]
@@ -132,7 +132,7 @@
 - *meat*: penis. can also be eaten.
 - *conquer*: to bring another into submission, usually sexually. refers to war and rape that occurs after battle. [in the sequence: I *came*,*saw*,*conquered*; submission happens because of the seeing aspect. when the third eye is opened, it's possible to *taint*/*mark* certain symbols with emotion, thereby making symbols (like infedelity, treason, loyalty, etc) feel much better or worse than they actually feel when those symbols/spells are evoked, thereby making those symbols accessible under those emotional states. for example, notice how dirty talk is only permitted in emotional states like lust. this symbolic structure is how one subdues the opponent, keeping self-empowering symbols locked into states of extasy, and associating with feelings of fear, dread, unworthiness, etc., otherwise. another good example of this conquering through symbolic association is this unseen *code* of *conduct* which everyone abides by, and so for example nobody ever has ever dared to write a glossary like this because these definitions are taboo. fortunately I don't perceive the symbolic image (just the conceptual), so I don't feel any fear or trepidation ("what will they think of me") when writing this. since I don't *see*, I can never be *conquered* or subdued symbolically]
 - *taint*: to *mark* something with *words*; the process of ever changing someone after a sexual experience.
-
+- *poison*: jizz.
 - *certainty*: sir+taint(y) - the taint that a man can give something with his *words*
 - *mark*: to *stain* or *taint* someone/something
 - *merry*: [not totally sure about this one, but the sense I have is to to be giddy after sex. it seems to often contrast *grief* or *melancholy*, which I believe are referring to gay sex]
@@ -150,7 +150,7 @@
 - *projectile*: *weapon* discharge
 - *substance*, *matter*: poop. often contrasted with *words*
 - *valiant*: to *stand*
-- moved: to feel strong emotion, often causing one to *stir* or to *stand*
+- *moved*: to feel strong emotion, often causing one to *stir* or to *stand*
 - stir, stirred:
 - *quarrel*: to fight someone, oftentimes with a *weapon*
 - *tool*: like a *weapon* but less effective at *killing*
@@ -238,6 +238,14 @@
 - *porter*: someone that opens/closes the *port*.
 - *bud*: a young or new flower. something the honey-bees visit in the springtime.
 - *sinew*: simi-rigid part of the body that can stiffen
+- *wreck*, *shipwreck*: happens when a *ship* crashes into something and is destroyed; the final climactic end for the ship, resulting in *death* and expulsion of all its *sailors*
+- *stand*: to *rise* up, straightening the *legs*
+- *stood*: past-tense of *stand*; or to have climaxed (sometimes it's also related to being *defeated*).
+- *defeated*: to be de-feeted, is to have lost one's *footing*.
+- *footwork*: an agile or nimble *foot* in *motion* or *action*.
+- *anchor*: a *metal* object that goes all the way to the *deepest* part of the *waters* (or *sea*)
+- *cheer*: pleasure received, usually from sex.
+- wind:
 
 present'd
 introduc'd
@@ -248,7 +256,7 @@ oath
 
 ## endings
 - *-et*: smaller version of the word it's connected to: juliet = small julia, boyet = small boy, dulcet = small sweet, etc.
-- *-ship*: a wooden boat, usualy filled with seamen, which motivates the first part of the word:
+- *-ship*: a wooden boat, usualy filled with *seamen*, which motivates the first part of the word:
 	- kingship: your royal *highness*, my *liege*
 	- apprenticeship
 	- mentorship
@@ -292,6 +300,7 @@ oath
 - "grab my *sword* by the hilt, and run me through with it": a "reach around".
 - "I beseech your *word* my *liege*": I'll put myself in a hopeful/prayerful position and wait for his word.
 - "summon up the blood": get hard.
+- "obdurate in standing": standing hard.
 
 ## names
 - benedick: bene (good) + dick. also sounds like "been a dick"
