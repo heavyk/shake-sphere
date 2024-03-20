@@ -6,8 +6,8 @@ beaded on my face [...]
 hits the warm soil
 moist air begins to rise
 
-thunderclaps of might
 thunderclaps of glory
+thunderclaps of might
 billows and blusters
 it's raining all through the night
 
