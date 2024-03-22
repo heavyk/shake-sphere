@@ -108,3 +108,4 @@ figure yourself out, and find out what it is that you like and want, how those t
 ### what do I mean by "unbalanced equation"
 ### can I explain this antarctica thing?
 ### can I explain the 2nd-ray installation?
+### does obedience trump my emotion?
